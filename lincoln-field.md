@@ -32,7 +32,9 @@ NEW LOCATION — **Hamilton International Middle School Commons**, 1610 N 41st S
 
 **Wednesday, Nov. 20, 2024, 6 p.m.**
 
-A link for an Teams Meeting online option to listen/watch will be posted on Wednesday. You will be able to submit comments in chat for collection, but we will not be reading or answering them during the meeting.
+If you are unable to attend in person, you can use the Teams Meeting link below to listen/watch online. You will be able to submit comments in the chat for collection, but we will not be reading or answering them during the meeting.
+
+[Join Nov. 20 Online Teams Meeting](https://teams.microsoft.com/l/meetup-join/19%3ameeting_Zjc0NzI3ZTItYjQ5Yy00ZGQ3LWE5ZmUtYTExYTJiOTdhMmVh%40thread.v2/0?context=%7b%22Tid%22%3a%22d431d158-6074-4832-8783-51ea6f6dd227%22%2c%22Oid%22%3a%221201883e-e2eb-4abf-b142-8ba9c7119769%22%7d)
 
 We will cover:
 
