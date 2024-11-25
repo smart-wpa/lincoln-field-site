@@ -22,27 +22,13 @@ Athletic Field for Lincoln High School
 
 SPS understands concerns about changing to Wallingford Playfield’s character. These discussions have guided us to ensure that any solutions aligns with community values while also addressing student needs.
 
-We look forward to your input on November 20. Your participation remains key to shaping a balanced, equitable solution for our students and our community.
+Your participation remains key to shaping a balanced, equitable solution for our students and our community.
 
-#### Nov. 20 Community Meeting Moved to Hamilton
+#### Nov. 20 Community Meeting
 
-Join us for updates on planning for an athletic field for Lincoln High School.
+Thank you to those who could join us in person or online on November 20. We are working to update the FAQ and website.
 
-NEW LOCATION — **Hamilton International Middle School Commons**, 1610 N 41st St.
-
-**Wednesday, Nov. 20, 2024, 6 p.m.**
-
-If you are unable to attend in person, you can use the Teams Meeting link below to listen/watch online. You will be able to submit comments in the chat for collection, but we will not be reading or answering them during the meeting.
-
-[Join Nov. 20 Online Teams Meeting](https://teams.microsoft.com/l/meetup-join/19%3ameeting_Zjc0NzI3ZTItYjQ5Yy00ZGQ3LWE5ZmUtYTExYTJiOTdhMmVh%40thread.v2/0?context=%7b%22Tid%22%3a%22d431d158-6074-4832-8783-51ea6f6dd227%22%2c%22Oid%22%3a%221201883e-e2eb-4abf-b142-8ba9c7119769%22%7d)
-
-We will cover:
-
-*   What we’ve heard from the community about the Wallingford Playfield option and how it helped inform our decision not to move ahead in considering a full-size synthetic turf field at that location.
-*   Other options we have explored in partnership with Seattle Parks and Recreation, including: Queen Anne Bowl, Gas Works Park, Woodland Park, and the parking lot on the north side of Lincoln High School.
-*   Next steps.
-
-Then we will take comments from community members with a one minute limit on time for each person so we can hear from as many people as possible.
+[Presentation](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Field-Mtg-2-Presentation.pdf)
 
 ### About the Project
 
