@@ -24,6 +24,20 @@ SPS understands concerns about changing to Wallingford Playfield’s character. 
 
 Your participation remains key to shaping a balanced, equitable solution for our students and our community.
 
+### Community Conversations
+
+#### **Community Input Sought**
+
+After extensive community input and further evaluation of Wallingford Playfield we have determined that we can better serve Lincoln High School, Hamilton International Middle School, and the Wallingford community by installing a half-size field that stays approximately within the current field footprint. We will also be working with Seattle Parks and Recreation to find an appropriate location to build a new full-size field that will meet the needs of Lincoln High School athletics.
+
+#### Community Input Received
+
+Community members have requested access to the raw feedback received. [This PDF](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Community-Feedback.pdf) includes community comments received through email, the Let’s Talk portal, and comment cards at the two community meetings through Nov. 21. Additional input will be compiled and posted each week.
+
+[Use our Let’s Talk online feedback form](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
+
+* * *
+
 #### Nov. 20 Community Meeting
 
 Thank you to those who could join us in person or online on November 20. We are working to update the FAQ and website.
@@ -47,16 +61,6 @@ There is not room to add a field on the Lincoln site, so SPS has been looking fo
 This project is funded by the [Buildings, Technology, and Academics/Athletics Capital Levy](https://www.seattleschools.org/about/levy/2022-capital-levy/) (BTA V), which was approved by Seattle voters in 2022.
 
 These funds cannot help the district close the budget gap. Funding from a capital levy must be used for the specified purposed. Capital levy funding cannot be transferred to the general fund, which is the account where operations and staffing are budgeted.
-
-### Community Conversations
-
-#### **Community Input Sought**
-
-After extensive community input and further evaluation of Wallingford Playfield we have determined that we can better serve Lincoln High School, Hamilton International Middle School, and the Wallingford community by installing a half-size field that stays approximately within the current field footprint. We will also be working with Seattle Parks and Recreation to find an appropriate location to build a new full-size field that will meet the needs of Lincoln High School athletics.
-
-[Use our Let’s Talk online feedback form](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
-
-* * *
 
 #### Community Meeting, Sept. 19
 
