@@ -42,7 +42,7 @@ In addition, a practice running track would be upgraded at the nearby Lower Wood
 
 **Location Search**
 
-There is not room to add a field on the Lincoln site, so SPS has been looking for an alternative site where a field can be constructed. We have conducted a robust evaluation of potential sites for a new field. Currently, the preferred option is Wallingford Playfield.
+There is not room to add a field on the Lincoln site, so SPS has been looking for an alternative site where a field can be constructed.
 
 **Funding**
 
