@@ -1,38 +1,26 @@
 Athletic Field for Lincoln High School
 --------------------------------------
 
-### Latest News: Update on Field Siting and a Change to the Meeting Location
+### Latest News
 
-#### A Decision on Wallingford Playfield
+After extensive community input and further evaluation of Wallingford Playfield, we are proposing to serve Lincoln High School, Hamilton International Middle School, and the Wallingford community by installing a half-size field that stays approximately within the current field footprint. We will also be working with Seattle Parks and Recreation to find an appropriate location to build a new full-size field that will meet the needs of Lincoln High School athletics.
 
-**SPS will not be pursuing Wallingford Playfield as the location for a full-size synthetic turf field for Lincoln High School.**
-
-*   Instead, we are proposing a smaller, half-size synthetic turf field that maintains current community use while supporting Lincoln High School and Hamilton International Middle School for physical education and after-school activities.
-*   This approach ensures the park’s character remains intact, balancing current community use with minor additional school-related use. We are not planning lighting for this revised proposal.
-
-#### Evaluation of Alternative Sites
-
-*   We carefully reviewed suggestions from the community including Gas Works Park, the Lincoln Parking lot, Queen Anne Bowl, and Meridian Park. At the meeting on Nov. 20, we’ll share why some sites aren’t feasible and share our selection process.
-*   While Queen Anne Bowl has been eliminated as a permanent solution, it remains a potential interim option.
+*   This approach ensures the park’s character remains intact, balancing current community use with minor additional school-related use.
+*   We are not planning lighting for this revised proposal.
 
 #### Next Steps and Stakeholder Engagement
 
-*   We are exploring longer-term possibilities for a full-size field, including Woodland Park, which provides opportunities for a more comprehensive and thoughtful solution.
-*   Your feedback has been instrumental in shaping these proposals, and we’ll continue to work with Seattle Parks and other stakeholders to refine our plans.
+We appreciate the robust feedback from the community regarding where to locate a synthetic turf athletic field for Lincoln High School as well as for potential use by Hamilton International Middle School. 
 
-SPS understands concerns about changing to Wallingford Playfield’s character. These discussions have guided us to ensure that any solutions aligns with community values while also addressing student needs.
+Currently, we are discussing next steps with Seattle Parks and Recreation (SPR). All feedback received through comment cards, by email, and though our Let’s Talk portal has been shared with SPR, and they have attended both community meetings.
 
-Your participation remains key to shaping a balanced, equitable solution for our students and our community.
+We will continue to update the website when we have additional information to share.
 
 ### Community Conversations
 
-#### **Community Input Sought**
-
-After extensive community input and further evaluation of Wallingford Playfield we have determined that we can better serve Lincoln High School, Hamilton International Middle School, and the Wallingford community by installing a half-size field that stays approximately within the current field footprint. We will also be working with Seattle Parks and Recreation to find an appropriate location to build a new full-size field that will meet the needs of Lincoln High School athletics.
-
 #### Community Input Received
 
-Community members have requested access to the raw feedback received. [This PDF](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Community-Feedback.pdf) includes community comments received through email, the Let’s Talk portal, and comment cards at the two community meetings through Nov. 21. Additional input will be compiled and posted each week.
+Community members have requested access to the raw feedback received. [This PDF](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Community-Feedback.pdf) includes community comments received through email, the Let’s Talk portal, and comment cards at the two community meetings through Nov. 21. Additional input will be compiled and posted by Dec. 20.
 
 [Use our Let’s Talk online feedback form](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
@@ -65,39 +53,6 @@ These funds cannot help the district close the budget gap. Funding from a capita
 #### Community Meeting, Sept. 19
 
 You can [download the presentation](//www.seattleschools.org/wp-content/uploads/2024/09/Lincoln-Field-Presentation-FINAL.pdf) from the September 19 community meeting.
-
-#### What We’ve Heard: Community Feedback on the Lincoln Athletic Field Project
-
-SPS has gathered community feedback regarding potential locations for the Lincoln Athletic Field through multiple channels, including a community meeting on Sept. 19, the Let’s Talk feedback form, emails, and monitoring community news blogs and social media.
-
-We are carefully reviewing all comments, concerns, and questions. Our FAQ is updated regularly to address common themes and inquiries.
-
-Here are some consistent themes across all feedback methods.
-
-Community members have expressed concerns about **losing natural spaces at Wallingford Playfield if it is selected as the location for the artificial turf field.** Some specific issues expressed were:
-
-*   Loss of significant trees, which provide shade, play areas, and spaces for relaxation.Impact on local wildlife habitats, with concerns over artificial turf replacing natural grass.
-*   Field use by organized teams and concern over reducing opportunities for unstructured play, exercise, and picnics.
-
-**Many community members support locating the field at Wallingford Playfield**, with the following comments:
-
-*   Current grass conditions are poor, often muddy and affected by dog waste.
-*   The location is ideal for Lincoln High School students, who deserve access to the same athletic opportunities of other high schools.
-*   There is a demand for more turf fields to accommodate the scheduling needs of sports teams.
-
-Several community members are concerned that **the new field would be in near-constant use** **after school and on weekends**, with both Lincoln and Hamilton using it, followed by Seattle Parks and Recreation scheduling until 9:45 p.m.
-
-Community members have raised concerns about **loose balls potentially entering streets or neighboring yards, as well as parking, lighting, and noise issues.**
-
-Many have requested that **the playground, wading pool, and tennis courts remain unchanged.**
-
-Some, especially those with young children, are concerned about any closure that reduces a**ccess to the wading pool and playground during construction.**
-
-**Community members have suggested several alternative locations**, including Gas Works Park, Woodland Park, Lower Woodland, Queen Anne Bowl, the north parking lot at Lincoln, and potentially available school sites if elementary schools are closed.
-
-Some have suggested **reducing the field size  or rotating it 90 degrees** from the current design proposals.
-
-Several community members have raised **environmental and health concerns related to the use of artificial turf.**
 
 ### Frequently Asked Questions
 
