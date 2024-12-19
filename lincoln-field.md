@@ -3,10 +3,11 @@ Athletic Field for Lincoln High School
 
 ### Latest News
 
-After extensive community input and further evaluation of Wallingford Playfield, we are proposing to serve Lincoln High School, Hamilton International Middle School, and the Wallingford community by installing a half-size field that stays approximately within the current field footprint. We will also be working with Seattle Parks and Recreation to find an appropriate location to build a new full-size field that will meet the needs of Lincoln High School athletics.
+After extensive community input and further evaluation of Wallingford Playfield, we are proposing to serve Lincoln High School, Hamilton International Middle School, and the Wallingford community by installing a half-size field that stays approximately within the current field footprint. We will also be working with Seattle Parks and Recreation (SPR) to find an appropriate location to build a new full-size field that will meet the needs of Lincoln High School athletics.
 
 *   This approach ensures the park’s character remains intact, balancing current community use with minor additional school-related use.
 *   We are not planning lighting for this revised proposal.
+*   This proposal is still under review by SPR and subject to their approval prior to moving forward.
 
 #### Next Steps and Stakeholder Engagement
 
