@@ -21,7 +21,11 @@ We will continue to update the website when we have additional information to sh
 
 #### Community Input Received
 
-Community members have requested access to the raw feedback received. [This PDF](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Community-Feedback.pdf) includes community comments received through email, the Let’s Talk portal, and comment cards at the two community meetings through Nov. 21. Additional input will be compiled and posted by Dec. 20.
+Community members have requested access to the raw feedback received.
+
+[This PDF](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Community-Feedback.pdf) includes community comments received through email, the Let’s Talk portal, and comment cards at the two community meetings through Nov. 21. Additional input will be compiled and posted by Dec. 20.
+
+This PDF includes [Let’s Talk feedback](//www.seattleschools.org/wp-content/uploads/2024/12/LincolnHS-Field-LetsTalk-Nov22-Dec19.pdf) received Nov. 22 through Dec. 19.
 
 [Use our Let’s Talk online feedback form](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
