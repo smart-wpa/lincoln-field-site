@@ -23,7 +23,7 @@ We will continue to update the website when we have additional information to sh
 
 Community members have requested access to the raw feedback received.
 
-[This PDF](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Community-Feedback.pdf) includes community comments received through email, the Let’s Talk portal, and comment cards at the two community meetings through Nov. 21. Additional input will be compiled and posted by Dec. 20.
+[Community comments received through email, the Let’s Talk portal, and comment cards at the two community meetings through Nov. 21.](https://www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Community-Feedback.pdf) Additional input will be compiled and posted by Dec. 20.
 
 This PDF includes [Let’s Talk feedback](//www.seattleschools.org/wp-content/uploads/2024/12/LincolnHS-Field-LetsTalk-Nov22-Dec19.pdf) received Nov. 22 through Dec. 19.
 
@@ -35,7 +35,7 @@ This PDF includes [Let’s Talk feedback](//www.seattleschools.org/wp-content/up
 
 Thank you to those who could join us in person or online on November 20. We are working to update the FAQ and website.
 
-[Presentation](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Field-Mtg-2-Presentation.pdf)
+[November 20 presentation](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Field-Mtg-2-Presentation.pdf)
 
 ### About the Project
 
@@ -57,7 +57,7 @@ These funds cannot help the district close the budget gap. Funding from a capita
 
 #### Community Meeting, Sept. 19
 
-You can [download the presentation](//www.seattleschools.org/wp-content/uploads/2024/09/Lincoln-Field-Presentation-FINAL.pdf) from the September 19 community meeting.
+[Download the presentation from the September 19 Community Meeting](//www.seattleschools.org/wp-content/uploads/2024/09/Lincoln-Field-Presentation-FINAL.pdf) from the September 19 community meeting.
 
 ### Frequently Asked Questions
 
