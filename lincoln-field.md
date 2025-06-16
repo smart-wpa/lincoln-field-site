@@ -16,7 +16,7 @@ SPS and Seattle Parks and Recreation (SPR) have decided to pause planning effort
 
 #### **Track Upgrades**
 
-Planning will begin this spring for upgrades to the track at Lower Woodland field #7, which is owned by Seattle Parks and Recreation. These improvements will support Lincoln’s robust track program.
+SPS and SPR have agreed to move forward with the track upgrades at Lower Woodland field #7, which is owned by Seattle Parks and Recreation. These improvements will support Lincoln’s robust track program.
 
 *   We will begin a separate community outreach effort for the track project.
 *   We will include other park stakeholders including Metro League to ensure we consider the needs of cross-country runners.
@@ -26,22 +26,15 @@ Planning will begin this spring for upgrades to the track at Lower Woodland fiel
 
 SPS and Seattle Parks are focusing on exploration of Woodland Park as a potential location for a new full-size synthetic turf field. Woodland Park could provide a longer-term solution that meets Lincoln’s athletic needs and supports the larger community.
 
-Engagement with the Woodland Park area community and other park stakeholders will be a key part of the process.
+Engagement with the Woodland Park area community and other park stakeholders will be a key part of the process. A siting study will begin this Fall (2025)
 
-*   A siting study will begin this Fall (2025)
 *   This approach ensures the park’s character remains intact, balancing current community use with minor additional school-related use.
 *   We are not planning lighting for this revised proposal.
 *   This proposal is still under review by SPR and subject to their approval prior to moving forward.
 
-#### Next Steps and Stakeholder Engagement
+* * *
 
-We appreciate the robust feedback from the community regarding where to locate a synthetic turf athletic field for Lincoln High School as well as for potential use by Hamilton International Middle School. 
-
-Currently, we are discussing next steps with Seattle Parks and Recreation (SPR). All feedback received through comment cards, by email, and though our Let’s Talk portal has been shared with SPR, and they have attended both community meetings.
-
-We will continue to update the website when we have additional information to share.
-
-#### Community Input Received
+### Community Input Received
 
 Community members have requested access to the raw feedback received.
 
@@ -50,8 +43,6 @@ Community members have requested access to the raw feedback received.
 This PDF includes [Let’s Talk feedback](//www.seattleschools.org/wp-content/uploads/2024/12/LincolnHS-Field-LetsTalk-Nov22-Dec19.pdf) received Nov. 22 through Dec. 19.
 
 [Use our Let’s Talk online feedback form](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
-
-* * *
 
 ### About the Project
 
