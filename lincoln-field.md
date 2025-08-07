@@ -1,5 +1,5 @@
-Athletic Field for Lincoln High School
---------------------------------------
+Track and Athletic Field for Lincoln High School
+------------------------------------------------
 
 ### Latest News
 
