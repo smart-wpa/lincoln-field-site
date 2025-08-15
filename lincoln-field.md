@@ -34,43 +34,23 @@ Engagement with the Woodland Park area community and other park stakeholders wil
 
 * * *
 
-### Community Input Received
-
-Community members have requested access to the raw feedback received.
-
-[Community comments received through email, the Let’s Talk portal, and comment cards at the two community meetings through Nov. 21.](https://www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Community-Feedback.pdf) Additional input will be compiled and posted by Dec. 20.
-
-This PDF includes [Let’s Talk feedback](//www.seattleschools.org/wp-content/uploads/2024/12/LincolnHS-Field-LetsTalk-Nov22-Dec19.pdf) received Nov. 22 through Dec. 19.
-
-[Use our Let’s Talk online feedback form](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
-
 ### About the Project
 
-Lincoln High School is the only high school in the district without an athletic field. When Seattle voters approved the 2022 capital levy, the school-specific projects included a new practice field for Lincoln High School.
+Lincoln High School is the only high school in the district without an athletic field or track. When Seattle voters approved the 2022 capital levy, the school-specific projects included a new practice field for Lincoln High School.
 
-The new Lincoln High School Practice Field would provide an athletics practice “home field” for students at Lincoln High School. It would give Lincoln High School students a state-of-the-art, full -size turf field for soccer, football and other sports, restrooms, and storage for athletic equipment.
+Upgrading the track at nearby Lower Woodland Field #7 will accommodate Lincoln’s robust track and field program as a practice location.
 
-In addition, a practice running track would be upgraded at the nearby Lower Woodland #7 field to accommodate Lincoln’s robust track and field program.
+Adding a new practice field somewhere in Woodland Park will provide a “home field” for Lincoln student athletes. As envisioned, it will provide students and the community with full-size synthetic turf field for soccer, football, and other sports, as well as restrooms and storage for athletic equipment. The field would not be used for varsity football games.
 
 **Location Search**
 
-There is not room to add a field on the Lincoln site, so SPS has been looking for an alternative site where a field can be constructed.
+There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for an alternative site where a field can be constructed. Lower Woodland Field #7 has been selected as the location for a new track.
 
 **Funding**
 
 This project is funded by the [Buildings, Technology, and Academics/Athletics Capital Levy](https://www.seattleschools.org/about/levy/2022-capital-levy/) (BTA V), which was approved by Seattle voters in 2022.
 
 These funds cannot help the district close the budget gap. Funding from a capital levy must be used for the specified purposed. Capital levy funding cannot be transferred to the general fund, which is the account where operations and staffing are budgeted.
-
-### Community Conversations
-
-#### Nov. 20 Community Meeting
-
-[November 20 presentation](//www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Field-Mtg-2-Presentation.pdf)
-
-#### Community Meeting, Sept. 19
-
-[Download the presentation from the September 19 Community Meeting](//www.seattleschools.org/wp-content/uploads/2024/09/Lincoln-Field-Presentation-FINAL.pdf) from the September 19 community meeting.
 
 ### Frequently Asked Questions
 
