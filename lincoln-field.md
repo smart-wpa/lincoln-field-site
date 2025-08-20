@@ -1,216 +1,83 @@
 Track and Athletic Field for Lincoln High School
 ------------------------------------------------
 
-### Latest News
+**Updated August 2025**
 
-**June 2025**
+### **About the Projects**
 
-#### **Wallingford Playfield**
+Lincoln High School is the only high school in the district without an athletic field or track. Funding to add these facilities were included in the voter-approved Buildings, Technology, and Athletics/Academics Capital Levy (BTA V) in 2022.
 
-SPS and Seattle Parks and Recreation (SPR) have decided to pause planning efforts for a synthetic turf field at Wallingford Playfield. This does not mean we are stepping away from upgrading this field entirely.
+There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations.
 
-*   We recognized the value this project could bring to students and the community.
-*   We want to take time to explore options and gather broader input.
-*   Pausing gives us the time to assess next steps.
-*   Community engagement will be a part of any future plans.
+#### **Project 1: Track and Field Sports**
 
-#### **Track Upgrades**
+SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work will begin this fall.
 
-SPS and SPR have agreed to move forward with the track upgrades at Lower Woodland field #7, which is owned by Seattle Parks and Recreation. These improvements will support Lincoln’s robust track program.
+**Upcoming** **Community Information Meeting**
 
-*   We will begin a separate community outreach effort for the track project.
-*   We will include other park stakeholders including Metro League to ensure we consider the needs of cross-country runners.
-*   Our goal is to make the space functional for both track and cross country.
+Join SPS and Seattle Parks and Recreation for an information session about the new track.
 
-#### **Full-Size Athletic Field**
+*   Saturday, Sept. 20, 11 a.m.
+*   Lower Woodland Field #7, near the bleachers
+*   Comments or questions? Use [Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
-SPS and Seattle Parks are focusing on exploration of Woodland Park as a potential location for a new full-size synthetic turf field. Woodland Park could provide a longer-term solution that meets Lincoln’s athletic needs and supports the larger community.
+**Concept Image**
 
-Engagement with the Woodland Park area community and other park stakeholders will be a key part of the process. A siting study will begin this Fall (2025)
+This image shows how the new track and related facilities could be located. It is not a final design.
 
-*   This approach ensures the park’s character remains intact, balancing current community use with minor additional school-related use.
-*   We are not planning lighting for this revised proposal.
-*   This proposal is still under review by SPR and subject to their approval prior to moving forward.
+[![aerial photo of a park with a oval running track and other shapes placed over the image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1-1024x768.jpg)](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1.jpg)
 
-* * *
+[PDF of track concept image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2.pdf)
 
-### About the Project
+#### **Project 2: Synthetic Athletic Field**
 
-Lincoln High School is the only high school in the district without an athletic field or track. When Seattle voters approved the 2022 capital levy, the school-specific projects included a new practice field for Lincoln High School.
+SPS and SPR are exploring locations at Woodland Park as a location for a new full-size synthetic turf field. The field would be used for soccer, football, and other field sports. The project also includes restrooms and storage for athletic equipment.
 
-Upgrading the track at nearby Lower Woodland Field #7 will accommodate Lincoln’s robust track and field program as a practice location.
+By adding a new athletic field somewhere in Woodland Park, we will provide a “home field” for Lincoln student athletes and for physical education (PE) classes.
 
-Adding a new practice field somewhere in Woodland Park will provide a “home field” for Lincoln student athletes. As envisioned, it will provide students and the community with full-size synthetic turf field for soccer, football, and other sports, as well as restrooms and storage for athletic equipment. The field would not be used for varsity football games.
+This field would be added to the interlocal agreement between SPS and SPR. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of scheduled school use.
 
-**Location Search**
+**Community Meeting**: **Save the Date**
 
-There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for an alternative site where a field can be constructed. Lower Woodland Field #7 has been selected as the location for a new track.
+Join SPS and Seattle Parks and Recreation for a community meeting to discuss potential locations at Woodland Park for the new full-size athletic field.
 
-**Funding**
+*   Wednesday, Oct. 15, 5:30 p.m.
+*   Location to be announced
+*   [Share your questions or feedback ahead of the meeting using Let’s Talk](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
-This project is funded by the [Buildings, Technology, and Academics/Athletics Capital Levy](https://www.seattleschools.org/about/levy/2022-capital-levy/) (BTA V), which was approved by Seattle voters in 2022.
+**Field** **Location**
 
-These funds cannot help the district close the budget gap. Funding from a capital levy must be used for the specified purposed. Capital levy funding cannot be transferred to the general fund, which is the account where operations and staffing are budgeted.
+Two locations have been identified as possible places to build the new field, Lower Woodland Field #2 and a parking lot at N. 50th St. and Aurora Ave. N. We will discuss these options at the community meeting.
+
+These images show concepts to test fit of the field, not project designs. It’s important to consider how a field might fit on a space before exploring further.
+
+**Option A: Lower Woodland Field #2**
+
+[![aerial photo of a park with a football field to the left and a soccer field to the right imposed over the photo](//www.seattleschools.org/wp-content/uploads/2025/08/Lower-Woodland-Soccer-Field-2-8-19-25-1024x683.jpg)](//www.seattleschools.org/wp-content/uploads/2025/08/Lower-Woodland-Soccer-Field-2-8-19-25.jpg)
+
+[PDF of Option A image](//www.seattleschools.org/wp-content/uploads/2025/08/Lower-Woodland-Soccer-Field-2-8-19-25.pdf)
+
+**Option B: Parking Lot at N. 50th Street and Aurora Ave. N**
+
+[![aerial of a wooded park with playfields surrounded by streets. A football/soccer field is imposed on top of the photo.](//www.seattleschools.org/wp-content/uploads/2025/08/SW-LWP-N50th-St-Parking-Lot-Site-Option-8-19-25-1024x731.jpg)](//www.seattleschools.org/wp-content/uploads/2025/08/SW-LWP-N50th-St-Parking-Lot-Site-Option-8-19-25.jpg)
+
+[PDF of Option B image](//www.seattleschools.org/wp-content/uploads/2025/08/SW-LWP-N50th-St-Parking-Lot-Site-Option-8-19-25.pdf)
+
+### Previous Conversations
+
+In 2024, SPS explored options for locating the synthetic athletic field at Wallingford Playfield. After engaging with the community, SPS and SPR decided to pause planning for any changes to Wallingford Playfield and instead focus on locating the field at Woodland Park. The information on those discussion is available for review.
+
+Wallingford Playfield is not under consideration for the Lincoln High School full-size synthetic athletic field.
 
 ### Frequently Asked Questions
 
-#### Questions about the project
+In progress. Have a question? Please use [Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
-##### Is the project cost-effective, given the district’s current financial constraints?
+### **Funding**
 
-Funding included in voter-approved capital levies must be used for the designated capital improvements to schools and school facilities. The funds cannot be used for operating costs. 
+This project is funded by the [Buildings, Technology, and Academics/Athletics Capital Levy](https://www.seattleschools.org/about/levy/2022-capital-levy/) (BTA V), which was approved by Seattle voters in 2022.
 
-The Lincoln High School Athletic Field project is funded by the voter-approved Buildings, Technology, and Academics/Athletics V capital levy (BTA V). It is a forward-thinking investment in our students and community, helping e
-
-##### How will you ensure transparency in the decision-making process and community engagement?
-
-Transparency is a key element of this project. We will provide clear documentation of community feedback. This will help SPS and SPR make informed decisions that reflect the needs of the entire community, not just specific interest groups. We will also ensure that any public meetings and engagements are approved by SPR leadership to maintain alignment with the overall process.
-
-##### Why does Lincoln High School need an athletics practice field?
-
-Lincoln High School is the only high school in the district without an athletic field, which limits opportunities for Lincoln’s students.
-
-For many students, after-school sports such as soccer, football, and track are a big part of their high school experience. The lack of facilities requires Lincoln students to travel to distant fields, disproportionately affecting students without access to reliable transportation.
-
-Without a field, Lincoln students are limited to physical education (PE) within the gymnasium or at Wallingford Playfield, which is largely unusable during the winter months due to rain, snow, and lack of lighting.
-
-##### How will this project help students?
-
-The new Lincoln High School Practice Field would provide an athletics practice “home field” for students, giving them a state-of-the-art, full-size turf field for soccer and football, restrooms, and storage for athletic equipment.
-
-A location closer to Lincoln reduces transportation and allows more flexibility for student schedules.
-
-The track upgrades will provide a “home field” for Lincoln’s extensive track program. This will allow track practice to take place after school instead of needing to adjust schedules to fit in around use of another school’s use of their track facility. It also reduces the need to take buses to Ingraham for practice.
-
-##### Where do Lincoln High School students practice now?
-
-Lincoln High School varsity football and varsity soccer practice and play at Memorial Stadium, which is three miles away from campus.
-
-Junior varsity teams and others use fields at Lower Woodland and sites around the area. Track athletes are currently bused to Ingraham High School, about five miles away from Lincoln.
-
-Memorial Stadium will be unavailable from summer 2025 through summer 2027, as it undergoes a complete renovation, so varsity teams will be unable to use the field.
-
-##### Why can’t you continue to use the existing fields and facilities at Lower Woodland?
-
-Lincoln will continue to use Lower Woodland facilities for Junior Varsity (JV) sports and sports other than soccer and football.
-
-Because Lower Woodland is booked to capacity, it cannot accommodate additional needs.
-
-##### Why isn’t the parking lot at Lincoln High School being converted back into a field?
-
-When Lincoln High School was renovated, converting the parking lot into a field was considered, but ultimately, the current layout was chosen to meet the overall needs of the school’s infrastructure, including the parking required by City code.
-
-Our design team conducted a study to determine if converting the parking lot or building over it would be feasible. The space available would not support a full-size or half-size athletic field.
-
-##### Did you consider putting a field on the roof of Lincoln High School?
-
-The roof of Lincoln High School is not designed to support a full-size field that can accommodate student needs.
-
-In the initial planning of the Lincoln High School renovation, architects and engineers did explore combining a parking lot and garage with a rooftop field. Steep costs and significant risks made this option unfeasible.
-
-##### Why can’t you use fields at other schools?
-
-Other schools use their fields for practice and games, and many are booked to capacity. Any additional use by Lincoln students would displace other programs.
-
-Transportation is a costly financial expense for athletics and Lincoln High School. A field near Lincoln will significantly cut costs.
-
-Early morning and late evening commutes could be eliminated with a nearby practice “home field” for students and families.
-
-##### Can you put the track and field at the same location?
-
-Locating the track and field at Woodland Park will keep both facilities within the same park but not adjacent.
-
-While we are studying locations at Woodland Park to potentially site the athletic field, we do not anticipate that there will be space for both a track and field.
-
-We are planning for upgrades to the track at Lower Woodland #7, but that field is not large enough to also include the new athletic field. In addition, upgrading the existing field would displace any athletic activities that currently take place on the field.
-
-##### Why can’t you continue to use Memorial Stadium?
-
-Memorial Stadium will be unavailable from summer 2025 through summer 2027, as it undergoes a complete renovation, so varsity teams will be unable to use the field.
-
-During this time, Lincoln students will need access to a field. More broadly, a “home field” for Lincoln High School brings many benefits to students at Lincoln and nearby Hamilton International Middle School.
-
-Not only does a practice “home field” expand access and equity for students, but by limiting student commutes, we can reduce the number of buses, resulting in a smaller carbon footprint. Most importantly, students will not be required to travel long distances early mornings and late evenings.
-
-##### Is this a permanent field? Will you move football and soccer back to Memorial Stadium once it’s complete?
-
-The proposed field is intended to be a permanent practice space for Lincoln High School students — they will not return to the new Memorial Stadium for practice once it’s complete. 
-
-##### Will this field meet the needs of all Lincoln students, or just a select group?
-
-This field is intended to serve a wide range of students, including those participating in various sports like soccer, football, and other field-based activities.
-
-We are committed to ensuring equitable access for all Lincoln students, in line with Title IX requirements.
-
-Wherever it is located, the field will be available to the broader community, offering a resource for everyone in the neighborhood.
-
-##### How will this project ensure equitable access for girls and other underrepresented athletes?
-
-Equity is a priority in the planning of this project. The field will not be reserved solely for football or boys’ teams.
-
-The field will be available for multiple sports, including girls’ teams and other athletic programs. The scheduling of the field will follow Seattle Public Schools’ commitment to Title IX, ensuring that all students, regardless of gender, have fair access to athletic resources.
-
-##### What role does Seattle Parks & Recreation (SPR) play in this project?
-
-SPR is a close partner to SPS in identifying potential locations and logistics of building this new practice field. Both are committed to selecting the best option for students and communities.
-
-SPR and SPS will continue to collaborate during design and construction after the field location is determined.
-
-##### Who will own and operate the field and track?
-
-Seattle Parks and Recreation will own any facilities built at Woodland Park. The track and field will be added to the interlocal agreement between SPS and Seattle Parks and Recreation. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of set school use.
-
-##### Will people be able to use the field if it is placed at one of Seattle’s parks?
-
-Yes. The Lincoln High School Practice Field can provide space for both the school and the broader community, ensuring the selected space remains a vibrant hub of activity.
-
-Seattle Parks & Recreation (SPR) will maintain important elements and character of the space selected and will work to ensure all can continue to enjoy. The field will also become part of SPR’s inventory of fields available for scheduling.
-
-##### Who will make the final decision on where to develop the field?
-
-The final decision will be made jointly between Seattle Parks & Recreation (SPR) and SPS, guided and informed by community input. It’s important for our communities to be heard — that’s why we’re looking for input and feedback.
-
-##### How will the installation of a new track at Lower Woodland affect the historic Metro League Cross Country (XC) course?
-
-The Parks Department and Seattle Public Schools are aware of the long-standing use of Lower Woodland for Metro League Cross Country meets. While resurfacing the dirt track will improve conditions for track athletes and the public, care will be taken to ensure the cross country course remains safe and accessible. 
-
-Planners will consult with Seattle Parks representatives to ensure the track design avoids obstacles, such as curbs or fences, that could interfere with the course.
-
-##### Can the new track be designed to accommodate both track and cross country runners?
-
-Yes, the plan is to surface the track in a way that ensures smooth transitions for cross country runners. Feedback from coaches and the running community will be essential in designing the track to minimize hazards and maintain access to the XC course.
-
-The goal is to make the space functional for both track and cross country.
-
-##### Will the field project include amenities beyond the practice field, such as lighting or seating?
-
-The selected location will eventually include precise LED lighting, restrooms, and storage for equipment in addition to the synthetic turf field.
-
-The field will include a minimal amount of seating.
-
-##### What are the plans for the lighting and other features? How will you design the project to minimize light pollution?
-
-A clear design process will be shared once a decision on location is made.
-
-The field lighting will be hyper directional and designed not to spillover into surrounding homes and areas. SPS will use highly efficient LED lighting to minimize use of electricity.
-
-##### Can you use natural grass instead of synthetic turf?
-
-We are aware of the environmental concerns surrounding turf, especially regarding heat islands and microplastics.
-
-To mitigate these issues, the project will use cork infill to reduce heat gain, as well as other environmentally responsible design elements. Our environmental review process will be transparent, and we welcome community feedback as we strive to balance athletic needs with environmental responsibility.
-
-##### What materials will be used for the turf, and how will potential environmental and health risks be addressed?
-
-The turf will be made of synthetic materials, which are being carefully evaluated.The current SPS & SPR standard is 2.25” dual fiber (a mix of monofilament & slit-film polyethylene) with a sand/granular cork infill over a 1” supplemental resilient pad.
-
-Disclosures about potential risks will be provided to families to ensure transparency and safety.
-
-##### How will you address the “heat island” effect caused by turf, considering natural grass is better at reducing heat?
-
-SPR standards call for light green turf and the lighter colors available for various markings. Cork infill also mitigates heat gain due to its lighter color.
-
-This project will include efforts to align with climate initiatives, including increasing green spaces in other areas of the park.
+These funds cannot help the district close the budget gap. Funding from a capital levy must be used for the specified purposed. Capital levy project funding cannot be transferred to the general fund, which is the account where operations and staffing are budgeted.
 
 ### Project Team
 
