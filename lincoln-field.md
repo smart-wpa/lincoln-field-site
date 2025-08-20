@@ -9,9 +9,9 @@ Lincoln High School is the only high school in the district without an athletic 
 
 There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations.
 
-#### **Project 1: Track and Field Sports**
+#### **Project 1: Track Upgrades at Woodland Park**
 
-SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work will begin this fall.
+SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work will begin this fall.
 
 **Upcoming** **Community Information Meeting**
 
@@ -29,9 +29,9 @@ This image shows how the new track and related facilities could be located. It i
 
 [PDF of track concept image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2.pdf)
 
-#### **Project 2: Synthetic Athletic Field**
+#### **Project 2: Full-Size Athletic Field**
 
-SPS and SPR are exploring locations at Woodland Park as a location for a new full-size synthetic turf field. The field would be used for soccer, football, and other field sports. The project also includes restrooms and storage for athletic equipment.
+SPS and SPR are exploring locations at Woodland Park as a location for a new full-size athletic field. The field would be used for soccer, football, and other field sports. The project also includes restrooms and storage for athletic equipment.
 
 By adding a new athletic field somewhere in Woodland Park, we will provide a “home field” for Lincoln student athletes and for physical education (PE) classes.
 
@@ -65,9 +65,9 @@ These images show concepts to test fit of the field, not project designs. It’s
 
 ### Previous Conversations
 
-In 2024, SPS explored options for locating the synthetic athletic field at Wallingford Playfield. After engaging with the community, SPS and SPR decided to pause planning for any changes to Wallingford Playfield and instead focus on locating the field at Woodland Park. [The information on those discussion is available for review.](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/lincoln-athletic-field-2024/)
+In 2024, SPS explored options for locating the athletic field at Wallingford Playfield. After engaging with the community, SPS and SPR decided to pause planning for any changes to Wallingford Playfield and instead focus on locating the field at Woodland Park. [The information on those discussion is available for review.](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/lincoln-athletic-field-2024/)
 
-Wallingford Playfield is not under consideration for the Lincoln High School full-size synthetic athletic field.
+Wallingford Playfield is not under consideration for the Lincoln High School full-size athletic field.
 
 ### Frequently Asked Questions
 
