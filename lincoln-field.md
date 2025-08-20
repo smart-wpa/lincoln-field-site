@@ -65,7 +65,7 @@ These images show concepts to test fit of the field, not project designs. It’s
 
 ### Previous Conversations
 
-In 2024, SPS explored options for locating the synthetic athletic field at Wallingford Playfield. After engaging with the community, SPS and SPR decided to pause planning for any changes to Wallingford Playfield and instead focus on locating the field at Woodland Park. The information on those discussion is available for review.
+In 2024, SPS explored options for locating the synthetic athletic field at Wallingford Playfield. After engaging with the community, SPS and SPR decided to pause planning for any changes to Wallingford Playfield and instead focus on locating the field at Woodland Park. [The information on those discussion is available for review.](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/lincoln-athletic-field-2024/)
 
 Wallingford Playfield is not under consideration for the Lincoln High School full-size synthetic athletic field.
 
