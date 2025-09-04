@@ -3,6 +3,8 @@ Track and Athletic Field for Lincoln High School
 
 **Updated September 3, 2025**
 
+**Latest News: Project 2, Option A revised to preserve BMX jumps**. See Project 2.
+
 ### About the Projects
 
 Lincoln High School is the only high school in the district without an athletic field or track. Funding to add these facilities were included in the voter-approved Buildings, Technology, and Athletics/Academics Capital Levy (BTA V) in 2022.
