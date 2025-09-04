@@ -1,7 +1,7 @@
 Track and Athletic Field for Lincoln High School
 ------------------------------------------------
 
-**Updated August 2025**
+**Updated September 3, 2025**
 
 ### About the Projects
 
@@ -51,17 +51,21 @@ Two locations have been identified as possible places to build the new field, Lo
 
 These images show concepts to test fit of the field, not project designs. It’s important to consider how a field might fit on a space before exploring further.
 
-**Option A: Lower Woodland Field #2**
+**New Information:** Our updated test fit layout ensures that the field will no longer impact the BMX bicycle jump area. Please see below.
 
-[![aerial photo of a park with a football field to the left and a soccer field to the right imposed over the photo](//www.seattleschools.org/wp-content/uploads/2025/08/Lower-Woodland-Soccer-Field-2-8-19-25-1024x683.jpg)](//www.seattleschools.org/wp-content/uploads/2025/08/Lower-Woodland-Soccer-Field-2-8-19-25.jpg)
+Thank you to the many community members who provided insight into the importance of maintaining these jumps.
 
-[PDF of Option A image](//www.seattleschools.org/wp-content/uploads/2025/08/Lower-Woodland-Soccer-Field-2-8-19-25.pdf)
+**Updated** **Option A: Lower Woodland Field #2**
+
+[![aerial photo of a park with a football field to the left and a soccer field to the right imposed over the photo](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.png)](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.png)
+
+[PDF of Option A image](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.pdf)
 
 **Option B: Parking Lot at N. 50th Street and Aurora Ave. N**
 
-[![aerial of a wooded park with playfields surrounded by streets. A football/soccer field is imposed on top of the photo.](//www.seattleschools.org/wp-content/uploads/2025/08/SW-LWP-N50th-St-Parking-Lot-Site-Option-8-19-25-1024x731.jpg)](//www.seattleschools.org/wp-content/uploads/2025/08/SW-LWP-N50th-St-Parking-Lot-Site-Option-8-19-25.jpg)
+[![aerial of a wooded park with playfields surrounded by streets. A football/soccer field is imposed on top of the photo.](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.png)](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.png)
 
-[PDF of Option B image](//www.seattleschools.org/wp-content/uploads/2025/08/SW-LWP-N50th-St-Parking-Lot-Site-Option-8-19-25.pdf)
+[PDF of Option B image](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.pdf)
 
 ### Previous Conversations
 
