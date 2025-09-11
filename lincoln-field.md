@@ -1,9 +1,13 @@
 Track and Athletic Field for Lincoln High School
 ------------------------------------------------
 
-**Updated September 3, 2025**
+**Updated Sept. 11, 2025**
 
-**Latest News: Project 2, Option A revised to preserve BMX jumps**. See Project 2.
+### **Latest News:**
+
+**Frequently Asked Questions (FAQs) added for each project.**
+
+**Project 2, Option A revised to preserve BMX jumps**. See Project 2.
 
 ### About the Projects
 
