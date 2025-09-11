@@ -3,6 +3,7 @@ Track and Athletic Field for Lincoln High School
 
 ### **Latest News**
 
+*   Reminder: Join us Saturday, Sept. 20, 11 a.m. to learn more about the track project.
 *   Frequently Asked Questions (FAQs) added for each project. (Sept. 11, 2025)
 *   Project 2, Option A revised to preserve BMX jumps. See Project 2. (Sept. 3, 2025)
 
@@ -16,7 +17,7 @@ There is not room to add a track or athletic field on the Lincoln site, so SPS h
 
 SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work will begin this fall.
 
-**Upcoming** **Community Information Meeting**
+#### **Upcoming** **Community Information Meeting**
 
 Join SPS and Seattle Parks and Recreation for an information session about the new track.
 
@@ -94,7 +95,7 @@ By adding a new athletic field somewhere in Woodland Park, we will provide a “
 
 This field would be added to the interlocal agreement between SPS and SPR. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of scheduled school use.
 
-**Community Meeting**: **Save the Date**
+#### **Community Meeting**: **Save the Date**
 
 Join SPS and Seattle Parks and Recreation for a community meeting to discuss potential locations at Woodland Park for the new full-size athletic field.
 
@@ -102,13 +103,13 @@ Join SPS and Seattle Parks and Recreation for a community meeting to discuss pot
 *   Location to be announced
 *   [Share your questions or feedback ahead of the meeting using Let’s Talk](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
-**Field** **Location**
+#### **Field** **Location**
 
 Two locations have been identified as possible places to build the new field, Lower Woodland Field #2 and a parking lot at N. 50th St. and Aurora Ave. N. We will discuss these options at the community meeting.
 
 These images show concepts to test fit of the field, not project designs. It’s important to consider how a field might fit on a space before exploring further.
 
-**New Information:** Our updated test fit layout ensures that the field will no longer impact the BMX bicycle jump area. Please see below.
+**New Information:** Our updated test fit layout ensures that the field in option A will no longer impact the BMX bicycle jump area. Please see below.
 
 Thank you to the many community members who provided insight into the importance of maintaining these jumps.
 
