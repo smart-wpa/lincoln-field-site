@@ -167,7 +167,7 @@ Other schools use their fields for practice and games, and many are booked to ca
 
 Our updated test fit layout ensures that the field will no longer impact the BMX bicycle jump area. Thank you to the many community members who provided insight into the importance of maintaining these jumps. The skate park will also remain in place.
 
-##### Will construction of the athletic field close trails or limit park use?Element #11
+##### Will construction of the athletic field close trails or limit park use?
 
 If a site is selected, temporary construction impacts are expected but will be carefully managed. Some trails may have short-term closures, but detours and signage will maintain access whenever possible. SPS and SPR will communicate clearly about timelines, closures, and alternative options for recreation during construction.
 
