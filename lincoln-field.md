@@ -3,9 +3,10 @@ Track and Athletic Field for Lincoln High School
 
 ### **Latest News**
 
-*   Reminder: Join us Saturday, Sept. 20, 11 a.m. to learn more about the track project.
-*   Frequently Asked Questions (FAQs) added for each project. (Sept. 11, 2025)
-*   Project 2, Option A revised to preserve BMX jumps. See Project 2. (Sept. 3, 2025)
+*   **Reminder**: Join us Saturday, Sept. 20, 11 a.m. at Lower Woodland Field #7 to learn more about the track project.
+*   **Updated date and location for Full-size Athletic Field meeting** — Now Oct. 22, 5:30 p.m. at Lincoln High School
+*   **Frequently Asked Questions** (FAQs) added for each project. (Sept. 11, 2025)
+*   **Project 2, Option A revised to preserve BMX jumps.** See Project 2. (Sept. 3, 2025)
 
 ### About the Projects
 
@@ -21,7 +22,7 @@ SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the tr
 
 Join SPS and Seattle Parks and Recreation for an information session about the new track.
 
-*   Saturday, Sept. 20, 11 a.m.
+*   **Saturday, Sept. 20, 11 a.m.**
 *   Lower Woodland Field #7, near the bleachers
 *   Comments or questions? Use [Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
@@ -95,12 +96,12 @@ By adding a new athletic field somewhere in Woodland Park, we will provide a “
 
 This field would be added to the interlocal agreement between SPS and SPR. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of scheduled school use.
 
-#### **Community Meeting**: **Save the Date**
+#### In-Person **Community Meeting**: **New date, location set**
 
 Join SPS and Seattle Parks and Recreation for a community meeting to discuss potential locations at Woodland Park for the new full-size athletic field.
 
-*   Wednesday, Oct. 15, 5:30 p.m.
-*   Location to be announced
+*   Wednesday, Oct. 22, 5:30 p.m.
+*   Lincoln High School Auditorium
 *   [Share your questions or feedback ahead of the meeting using Let’s Talk](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
 #### **Field** **Location**
