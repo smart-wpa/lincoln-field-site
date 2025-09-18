@@ -4,9 +4,9 @@ Track and Athletic Field for Lincoln High School
 ### **Latest News**
 
 *   **Reminder**: Join us Saturday, Sept. 20, 11 a.m. at Lower Woodland Field #7 to learn more about the track project.
-*   **Updated date and location for Full-size Athletic Field meeting** — New date TBD. (Sept. 17, 2025)
-*   **Frequently Asked Questions** (FAQs) added for each project. (Sept. 11, 2025)
-*   **Project 2, Option A revised to preserve BMX jumps.** See Project 2. (Sept. 3, 2025)
+*   **New Date for Full-size Athletic Field meeting** — New date, Thursday, Nov. 6. See more information in Project 2. (posted Sept. 18)
+*   **Frequently Asked Questions** (FAQs) added for each project. (posted Sept. 11)
+*   **Project 2, Option A revised to preserve BMX jumps.** See Project 2. (posted Sept. 3)
 
 ### About the Projects
 
@@ -100,8 +100,9 @@ This field would be added to the interlocal agreement between SPS and SPR. This 
 
 Join SPS and Seattle Parks and Recreation for a community meeting to discuss potential locations at Woodland Park for the new full-size athletic field.
 
-*   New date TBD
-*   Lincoln High School
+*   **New Date: Thursday, Nov. 6, 2025**
+*   **New Time: 6:30 p.m.**
+*   **Location: Lincoln High School gymnasium**
 *   [Share your questions or feedback ahead of the meeting using Let’s Talk](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
 #### **Field** **Location**
