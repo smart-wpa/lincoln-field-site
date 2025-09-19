@@ -3,10 +3,13 @@ Track and Athletic Field for Lincoln High School
 
 ### **Latest News**
 
-*   **Reminder**: Join us Saturday, Sept. 20, 11 a.m. at Lower Woodland Field #7 to learn more about the track project.
-*   **New Date for Full-size Athletic Field meeting** — New date, Thursday, Nov. 6. See more information in Project 2. (posted Sept. 18)
-*   **Frequently Asked Questions** (FAQs) added for each project. (posted Sept. 11)
-*   **Project 2, Option A revised to preserve BMX jumps.** See Project 2. (posted Sept. 3)
+#### **Reminder**: Join us Saturday, Sept. 20, 11 a.m. at Lower Woodland Field #7 to learn more about the track project.
+
+**New Date for Full-size Athletic Field meeting** — New date, Thursday, Nov. 6. See more information in Project 2. (posted Sept. 18)
+
+**Frequently Asked Questions** (FAQs) added for each project. (posted Sept. 11)
+
+**Project 2, Option A revised to preserve BMX jumps.** See Project 2. (posted Sept. 3)
 
 ### About the Projects
 
