@@ -27,7 +27,7 @@ Join SPS and Seattle Parks and Recreation for an information session about the n
 
 *   **Saturday, Sept. 20, 11 a.m.**
 *   Lower Woodland Field #7, near the bleachers
-*   Comments or questions? Use [Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
+*   [Comments or questions? Use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
 **Concept Image**
 
@@ -35,7 +35,7 @@ This image shows how the new track and related facilities could be located. It i
 
 [![aerial photo of a park with a oval running track and other shapes placed over the image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1-1024x768.jpg)](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1.jpg)
 
-[PDF of track concept image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2.pdf)
+[Track concept image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2.pdf)
 
 #### Frequently Asked Questions About the Track
 
@@ -89,7 +89,7 @@ Locating the track and athletic field at Woodland Park will keep both facilities
 
 While we are studying locations at Woodland Park to potentially site the athletic field, we do not anticipate that there will be space for both a track and field. We are planning upgrades to the track at Lower Woodland #7, but that field is not large enough to also include the new athletic field. In addition, upgrading the existing field would displace any athletic activities that currently take place on the field.
 
-Have a question? Please use [Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
+[Have a question? Please use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
 ### Project 2: Full-Size Athletic Field
 
@@ -108,7 +108,7 @@ Join SPS and Seattle Parks and Recreation for a community meeting to discuss pot
 *   **Location: Lincoln High School gymnasium**
 *   [Share your questions or feedback ahead of the meeting using Let’s Talk](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
-#### **Field** **Location**
+#### **Field** Location
 
 Two locations have been identified as possible places to build the new field, Lower Woodland Field #2 and a parking lot at N. 50th St. and Aurora Ave. N. We will discuss these options at the community meeting.
 
@@ -122,13 +122,13 @@ Thank you to the many community members who provided insight into the importance
 
 [![aerial photo of a park with a football field to the left and a soccer field to the right imposed over the photo](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.png)](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.png)
 
-[PDF of Option A image](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.pdf)
+[Option A image](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.pdf)
 
 **Option B: Parking Lot at N. 50th Street and Aurora Ave. N**
 
 [![aerial of a wooded park with playfields surrounded by streets. A football/soccer field is imposed on top of the photo.](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.png)](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.png)
 
-[PDF of Option B image](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.pdf)
+[Option B image](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.pdf)
 
 #### Frequently Asked Questions on the Full-Size Athletic Field
 
@@ -186,7 +186,7 @@ We are planning upgrades to the track at Lower Woodland #7, but that field is no
 
 ##### Why can’t Lincoln High School’s own parking lot be converted into an athletic field?
 
-Lincoln’s campus footprint and existing parking lot size cannot accommodate a regulation full-size athletic field. While the parking lot site has been reviewed, it does not provide enough space to safely fit a field that meets state athletic standards. You can see a test fit as part of [the presentation](https://www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Field-Mtg-2-Presentation.pdf) made at the November 20, 2024, community meeting – slide #6.
+Lincoln’s campus footprint and existing parking lot size cannot accommodate a regulation full-size athletic field. While the parking lot site has been reviewed, it does not provide enough space to safely fit a field that meets state athletic standards. [You can see a test fit as part of the presentation](https://www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Field-Mtg-2-Presentation.pdf) made at the November 20, 2024, community meeting – slide #6.
 
 ##### Why do you need to add another field? It seems like the two soccer fields that are at Lower Woodland are empty a lot.
 
@@ -206,7 +206,7 @@ Seattle Public Schools (SPS) has paused planning for changes at Wallingford Play
 
 ##### Are you looking for other options for locating the full-size athletic field?
 
-We have explored 15 locations in the past 2.5 years, including some suggested by community members. You can see the list as part of [the presentation](https://www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Field-Mtg-2-Presentation.pdf) made at the November 20, 2024, community meeting – slide #5.
+We have explored 15 locations in the past 2.5 years, including some suggested by community members. [You can see the list as part of the presentation](https://www.seattleschools.org/wp-content/uploads/2024/11/Lincoln-Field-Mtg-2-Presentation.pdf) made at the November 20, 2024, community meeting – slide #5.
 
 ##### What materials will be used for the turf, and how will potential environmental and health risks be addressed?
 
@@ -232,7 +232,7 @@ Parking will be part of the siting and design study. SPS and SPR recognize the c
 
 Traffic and safety are important considerations. SPS will coordinate with SPR and the City of Seattle to address existing congestion and event-related traffic in the Woodland Park Triangle. This includes evaluating parking management, transit access, and pedestrian/bike safety. Community input will help shape strategies to reduce negative impacts and improve access for all.
 
-Have a question? Please use [Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
+[Have a question? Please use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
 ### Previous Conversations
 
