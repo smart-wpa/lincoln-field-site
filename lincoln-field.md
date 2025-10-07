@@ -7,9 +7,13 @@ Track and Athletic Field for Lincoln High School
 
 *   New date, Thursday, Nov. 6. [See more information in Project 2](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/#gbe616709c9d2). (posted Sept. 18)
 
-**Frequently Asked Questions** (FAQs) added for each project. (posted Sept. 11)
+**Frequently Asked Questions** (FAQs)
 
-**Project 2, Option A revised to preserve BMX jumps.** [See Project 2.](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/#gbe616709c9d2) (posted Sept. 3)
+*   FAQs have been added for each project. (posted Sept. 11)
+
+#### **Project 2, Option A revised to preserve BMX jumps**
+
+The concept drawings for Project 2 option A have been update to avoid impacts to the bicycle jumps. [See Project 2.](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/#gbe616709c9d2) (posted Sept. 3)
 
 ### About the Projects
 
