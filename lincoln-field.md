@@ -9,7 +9,7 @@ A summary of what we heard at the Sept. 20 community information meeting has bee
 
 #### **New Date for Full-size Athletic Field meeting**
 
-*   New date, Thursday, Nov. 6. [See more information in Project 2](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/#gbe616709c9d2). (posted Sept. 18)
+*   New date, Thursday, Nov. 6., 6:30 p.m. in Lincoln gymnasium. (posted Sept. 18)
 
 #### **Frequently Asked Questions** (FAQs)
 
@@ -17,7 +17,7 @@ A summary of what we heard at the Sept. 20 community information meeting has bee
 
 #### **Project 2, Option A revised to preserve BMX jumps**
 
-The concept drawings for Project 2 option A have been update to avoid impacts to the bicycle jumps. [See Project 2.](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/#gbe616709c9d2) (posted Sept. 3)
+The concept drawings for Project 2 option A have been update to avoid impacts to the bicycle jumps. See Project 2. (posted Sept. 3)
 
 ### About the Projects
 
