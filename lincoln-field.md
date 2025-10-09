@@ -195,7 +195,7 @@ Those in attendance specifically referenced a need for:
 
 Concerns were raised about drainage and the high water table, and about scheduling.
 
-**Concept Image**
+#### **Concept Image**
 
 This image shows how the new track and related facilities could be located. It is not a final design.
 
