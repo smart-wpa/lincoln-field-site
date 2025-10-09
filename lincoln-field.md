@@ -76,6 +76,8 @@ SPR is a close partner to SPS in identifying potential locations and logistics f
 
 ##### Who will own and operate the athletic field?
 
+Seattle Parks & Recreation will own any facilities built at Woodland Park. The athletic field will be added to the interlocal agreement between SPS and Seattle Parks & Recreation. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of set school use.
+
 ##### Who will make the final decision on where to develop the athletic field?
 
 The final decision will be made jointly between Seattle Parks & Recreation (SPR) and SPS, guided and informed by community input. It’s important for our communities to be heard — that’s why we’re looking for input and feedback.
@@ -105,6 +107,8 @@ Our updated test fit layout ensures that the field will no longer impact the BMX
 If a site is selected, temporary construction impacts are expected but will be carefully managed. Some trails may have short-term closures, but detours and signage will maintain access whenever possible. SPS and SPR will communicate clearly about timelines, closures, and alternative options for recreation during construction.
 
 ##### Will the community be able to use the new full-size athletic field if it is located within Woodland Park?
+
+Yes. The full-size athletic field will provide space for both the school and the broader community. The new field will become part of the SPR inventory of fields that is part of the interlocal agreement between SPS and SPR.
 
 ##### Can you put the new athletic field at the same location as the new track?
 
@@ -174,13 +178,22 @@ Wallingford Playfield is not under consideration for the Lincoln High School ful
 
 SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work will begin this fall.
 
-#### **Upcoming** **Community Information Meeting**
+#### **Community Information Meeting**
 
-Join SPS and Seattle Parks and Recreation for an information session about the new track.
+On Saturday, Sept. 20, community members joined us to learn more about this project.
 
-*   **Saturday, Sept. 20, 11 a.m.**
-*   Lower Woodland Field #7, near the bleachers
-*   [Comments or questions? Use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
+[![outdoor meeting with one person standing with presentation board on easel and a group of people facing them in chairs](//www.seattleschools.org/wp-content/uploads/2025/10/meeting-20Sept2025jpg.jpg)](//www.seattleschools.org/wp-content/uploads/2025/10/meeting-20Sept2025jpg.jpg)
+
+**What we heard**
+
+Those in attendance specifically referenced a need for:
+
+*   A fence all the way across behind the goals to keep lacrosse balls from the parking lots (they go at a high rate of speed)
+*   Low fence to keep soccer balls from rolling onto track
+*   Separating the walking path from the track (and keeping it useable during construction)
+*   Need a pole vault area
+
+Concerns were raised about drainage and the high water table, and about scheduling.
 
 **Concept Image**
 
