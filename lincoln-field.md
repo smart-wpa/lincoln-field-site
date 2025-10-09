@@ -110,6 +110,28 @@ Our updated test fit layout ensures that the field will no longer impact the BMX
 
 If a site is selected, temporary construction impacts are expected but will be carefully managed. Some trails may have short-term closures, but detours and signage will maintain access whenever possible. SPS and SPR will communicate clearly about timelines, closures, and alternative options for recreation during construction.
 
+##### How many trees would be removed for each option?
+
+**Option A:** Total tree removals OR impacted (not sure if removal will be required): 10 
+
+*   9 will be removed 
+
+*   6 of those are large trees ≥24 inches
+
+*   1 will require further study on impacts and may be retained
+
+**Option B:** Total tree removals OR impacted (not sure if removal will be required): 78
+
+Removal
+
+*   42 are large trees ≥24 inches
+*   21 are smaller trees <24 inches 
+
+Not sure if removal required
+
+*   8 are smaller trees impacted  <24 inches (may be removed – more study required)
+*   7 are large trees impacted  ≥24 inches (may be removed – more study required)
+
 ##### Will the community be able to use the new full-size athletic field if it is located within Woodland Park?
 
 Yes. The full-size athletic field will provide space for both the school and the broader community. The new field will become part of the SPR inventory of fields that is part of the interlocal agreement between SPS and SPR.
