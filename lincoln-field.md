@@ -3,11 +3,15 @@ Track and Athletic Field for Lincoln High School
 
 ### **Latest News**
 
+#### Field Community Meeting Summary
+
+A summary of what we heard at the Sept. 20 community information meeting has been posted. (Oct. 9)
+
 #### **New Date for Full-size Athletic Field meeting**
 
 *   New date, Thursday, Nov. 6. [See more information in Project 2](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/#gbe616709c9d2). (posted Sept. 18)
 
-**Frequently Asked Questions** (FAQs)
+#### **Frequently Asked Questions** (FAQs)
 
 *   FAQs have been added for each project. (posted Sept. 11)
 
