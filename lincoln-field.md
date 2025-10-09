@@ -190,8 +190,7 @@ Those in attendance specifically referenced a need for:
 
 *   A fence all the way across behind the goals to keep lacrosse balls from the parking lots (they go at a high rate of speed)
 *   Low fence to keep soccer balls from rolling onto track
-*   Separating the walking path from the track (and keeping it useable during construction)
-*   Need a pole vault area
+*   Separating the walking path from the track (and keeping it usable during construction)
 
 Concerns were raised about drainage and the high water table, and about scheduling.
 
