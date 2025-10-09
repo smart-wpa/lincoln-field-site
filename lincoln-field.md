@@ -21,80 +21,6 @@ Lincoln High School is the only high school in the district without an athletic 
 
 There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations.
 
-### Project 1: Track Upgrades at Woodland Park
-
-SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work will begin this fall.
-
-#### **Upcoming** **Community Information Meeting**
-
-Join SPS and Seattle Parks and Recreation for an information session about the new track.
-
-*   **Saturday, Sept. 20, 11 a.m.**
-*   Lower Woodland Field #7, near the bleachers
-*   [Comments or questions? Use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
-
-**Concept Image**
-
-This image shows how the new track and related facilities could be located. It is not a final design.
-
-[![aerial photo of a park with a oval running track and other shapes placed over the image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1-1024x768.jpg)](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1.jpg)
-
-[Track concept image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2.pdf)
-
-#### Frequently Asked Questions About the Track
-
-##### Why does Lincoln High School need a track?
-
-Lincoln High School is the only high school in the district without track (or an athletic field), which limits opportunities for Lincoln’s students. For many students, after-school sports such as track, soccer, and football are a big part of their high school experience. The lack of facilities requires Lincoln students to travel to distant fields, disproportionately affecting students without access to reliable transportation.
-
-##### Where do Lincoln track and field student athletes practice now?
-
-Lincoln athletes currently use track and field event facilities Ingraham High School, about five miles from Lincoln High School. Ingraham has priority in scheduling, so Lincoln practices are scheduled later in the day or early in the morning.
-
-##### How will this project help students?
-
-The Lower Woodland Field #7 track upgrades will provide a “home field” for Lincoln’s extensive track program. This will allow track practice to take place after school instead of needing to adjust schedules to fit in around use of another school’s use of their track facility. It also reduces the need to take buses to Ingraham for practice.
-
-##### What role does Seattle Parks and Recreation (SPR) play in this project?
-
-SPR is a close partner to SPS in identifying potential locations and logistics for building the track and the full-size athletic field. Collaboration will continue during design and construction.
-
-##### Who will own and operate the track?
-
-Seattle Parks & Recreation will own any facilities built at Woodland Park. The track will be added to the interlocal agreement between SPS and Seattle Parks & Recreation. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of set school use.
-
-##### Will the community still be able to use the track at Lower Woodland Field #7?
-
-Yes. The upgraded track can provide space for both the school and for the broader community. Seattle Parks & Recreation (SPR) field inside the track will remain part of the SPR inventory of fields that is part of the interlocal agreement between SPS and SPR. The track will be added to the interlocal agreement.
-
-##### How will installation of the new track at Lower Woodland Field #7 affect the historic Metro League Cross Country (XC) course?
-
-SPS and Seattle Parks & Recreation (SPR) are aware of the long-standing use of Lower Woodland for Metro League Cross Country meets. While resurfacing the dirt track will improve conditions for track athletes and the public, care will be taken to ensure the XC course remains safe and accessible. Planners will consult with SPR representatives to ensure the track design avoids obstacles, such as curbs or fences that could interfere with XC.
-
-##### Can the new track be designed to accommodate both track and cross country (XC) runners?
-
-Yes. The plan is to surface the track in a way that ensures smooth transitions for cross country runners. Feedback from coaches and the running community will shape the final design to minimize hazards and maintain access to the XC course. The goal is to make the space functional for both track and cross country.
-
-##### Will the track project include amenities beyond the running track, such as lighting, seating, or space for field events practice?
-
-Lower Woodland Field #7 already has lights and minimal bleachers. The lights will remain, and the bleachers will be replaced. The initial fit test designs include space for field event practice including shot put, long jump, discus, and other field events. A storage building will be added to store track and field events equipment.
-
-##### How will you ensure transparency in the decision-making process and community engagement?
-
-Transparency is a cornerstone of this project. We will share information openly, hold public meetings and information sessions, and provide updates as plans evolve. Community feedback will be documented and used to guide decisions at every stage of the process.
-
-##### Are these projects cost-effective, given the district’s current financial constraints?
-
-The Lincoln High School Athletic Field and Track projects are two parts of a project approved as part of the 2022 Buildings, Technology, and Academics/Athletics V Capital Levy. Funding included in voter-approved capital levies must be used for the designated capital improvements to schools and school facilities. The funds cannot be used for operating costs.
-
-##### Can you put the new athletic field at the same location?
-
-Locating the track and athletic field at Woodland Park will keep both facilities within the same park but not adjacent.
-
-While we are studying locations at Woodland Park to potentially site the athletic field, we do not anticipate that there will be space for both a track and field. We are planning upgrades to the track at Lower Woodland #7, but that field is not large enough to also include the new athletic field. In addition, upgrading the existing field would displace any athletic activities that currently take place on the field.
-
-[Have a question? Please use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
-
 ### Project 2: Full-Size Athletic Field
 
 SPS and SPR are exploring locations at Woodland Park as a location for a new full-size athletic field. The field would be used for soccer, football, and other field sports. The project also includes restrooms and storage for athletic equipment.
@@ -243,6 +169,80 @@ Traffic and safety are important considerations. SPS will coordinate with SPR an
 In 2024, SPS explored options for locating the athletic field at Wallingford Playfield. After engaging with the community, SPS and SPR decided to pause planning for any changes to Wallingford Playfield and instead focus on locating the field at Woodland Park. [The information on those discussion is available for review.](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/lincoln-athletic-field-2024/)
 
 Wallingford Playfield is not under consideration for the Lincoln High School full-size athletic field.
+
+### Project 1: Track Upgrades at Woodland Park
+
+SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work will begin this fall.
+
+#### **Upcoming** **Community Information Meeting**
+
+Join SPS and Seattle Parks and Recreation for an information session about the new track.
+
+*   **Saturday, Sept. 20, 11 a.m.**
+*   Lower Woodland Field #7, near the bleachers
+*   [Comments or questions? Use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
+
+**Concept Image**
+
+This image shows how the new track and related facilities could be located. It is not a final design.
+
+[![aerial photo of a park with a oval running track and other shapes placed over the image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1-1024x768.jpg)](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1.jpg)
+
+[Track concept image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2.pdf)
+
+#### Frequently Asked Questions About the Track
+
+##### Why does Lincoln High School need a track?
+
+Lincoln High School is the only high school in the district without track (or an athletic field), which limits opportunities for Lincoln’s students. For many students, after-school sports such as track, soccer, and football are a big part of their high school experience. The lack of facilities requires Lincoln students to travel to distant fields, disproportionately affecting students without access to reliable transportation.
+
+##### Where do Lincoln track and field student athletes practice now?
+
+Lincoln athletes currently use track and field event facilities Ingraham High School, about five miles from Lincoln High School. Ingraham has priority in scheduling, so Lincoln practices are scheduled later in the day or early in the morning.
+
+##### How will this project help students?
+
+The Lower Woodland Field #7 track upgrades will provide a “home field” for Lincoln’s extensive track program. This will allow track practice to take place after school instead of needing to adjust schedules to fit in around use of another school’s use of their track facility. It also reduces the need to take buses to Ingraham for practice.
+
+##### What role does Seattle Parks and Recreation (SPR) play in this project?
+
+SPR is a close partner to SPS in identifying potential locations and logistics for building the track and the full-size athletic field. Collaboration will continue during design and construction.
+
+##### Who will own and operate the track?
+
+Seattle Parks & Recreation will own any facilities built at Woodland Park. The track will be added to the interlocal agreement between SPS and Seattle Parks & Recreation. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of set school use.
+
+##### Will the community still be able to use the track at Lower Woodland Field #7?
+
+Yes. The upgraded track can provide space for both the school and for the broader community. Seattle Parks & Recreation (SPR) field inside the track will remain part of the SPR inventory of fields that is part of the interlocal agreement between SPS and SPR. The track will be added to the interlocal agreement.
+
+##### How will installation of the new track at Lower Woodland Field #7 affect the historic Metro League Cross Country (XC) course?
+
+SPS and Seattle Parks & Recreation (SPR) are aware of the long-standing use of Lower Woodland for Metro League Cross Country meets. While resurfacing the dirt track will improve conditions for track athletes and the public, care will be taken to ensure the XC course remains safe and accessible. Planners will consult with SPR representatives to ensure the track design avoids obstacles, such as curbs or fences that could interfere with XC.
+
+##### Can the new track be designed to accommodate both track and cross country (XC) runners?
+
+Yes. The plan is to surface the track in a way that ensures smooth transitions for cross country runners. Feedback from coaches and the running community will shape the final design to minimize hazards and maintain access to the XC course. The goal is to make the space functional for both track and cross country.
+
+##### Will the track project include amenities beyond the running track, such as lighting, seating, or space for field events practice?
+
+Lower Woodland Field #7 already has lights and minimal bleachers. The lights will remain, and the bleachers will be replaced. The initial fit test designs include space for field event practice including shot put, long jump, discus, and other field events. A storage building will be added to store track and field events equipment.
+
+##### How will you ensure transparency in the decision-making process and community engagement?
+
+Transparency is a cornerstone of this project. We will share information openly, hold public meetings and information sessions, and provide updates as plans evolve. Community feedback will be documented and used to guide decisions at every stage of the process.
+
+##### Are these projects cost-effective, given the district’s current financial constraints?
+
+The Lincoln High School Athletic Field and Track projects are two parts of a project approved as part of the 2022 Buildings, Technology, and Academics/Athletics V Capital Levy. Funding included in voter-approved capital levies must be used for the designated capital improvements to schools and school facilities. The funds cannot be used for operating costs.
+
+##### Can you put the new athletic field at the same location?
+
+Locating the track and athletic field at Woodland Park will keep both facilities within the same park but not adjacent.
+
+While we are studying locations at Woodland Park to potentially site the athletic field, we do not anticipate that there will be space for both a track and field. We are planning upgrades to the track at Lower Woodland #7, but that field is not large enough to also include the new athletic field. In addition, upgrading the existing field would displace any athletic activities that currently take place on the field.
+
+[Have a question? Please use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
 ### Funding
 
