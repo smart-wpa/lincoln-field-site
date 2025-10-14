@@ -1,21 +1,21 @@
 Track and Athletic Field for Lincoln High School
 ------------------------------------------------
 
-### **Latest News**
+### Latest News
 
 #### Field Community Meeting Summary
 
 A summary of what we heard at the Sept. 20 community information meeting has been posted. (Oct. 9)
 
-#### **New Date for Full-size Athletic Field meeting**
+#### New Date for Full-size Athletic Field meeting
 
 *   New date, Thursday, Nov. 6., 6:30 p.m. in Lincoln gymnasium. (posted Sept. 18)
 
-#### **Frequently Asked Questions** (FAQs)
+#### Frequently Asked Questions (FAQs)
 
 *   FAQs have been added for each project. (posted Sept. 11)
 
-#### **Project 2, Option A revised to preserve BMX jumps**
+#### Project 2, Option A revised to preserve BMX jumps
 
 The concept drawings for Project 2 option A have been update to avoid impacts to the bicycle jumps. See Project 2. (posted Sept. 3)
 
@@ -33,7 +33,7 @@ By adding a new athletic field somewhere in Woodland Park, we will provide a “
 
 This field would be added to the interlocal agreement between SPS and SPR. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of scheduled school use.
 
-#### In-Person **Community Meeting**: **New date, location set**
+#### In-Person Community Meeting: New date, location set
 
 Join SPS and Seattle Parks and Recreation for a community meeting to discuss potential locations at Woodland Park for the new full-size athletic field.
 
@@ -42,7 +42,7 @@ Join SPS and Seattle Parks and Recreation for a community meeting to discuss pot
 *   **Location: Lincoln High School gymnasium**
 *   [Share your questions or feedback ahead of the meeting using Let’s Talk](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
-#### **Field** Location
+#### Field Location
 
 Two locations have been identified as possible places to build the new field, Lower Woodland Field #2 and a parking lot at N. 50th St. and Aurora Ave. N. We will discuss these options at the community meeting.
 
@@ -110,7 +110,15 @@ Our updated test fit layout ensures that the field will no longer impact the BMX
 
 If a site is selected, temporary construction impacts are expected but will be carefully managed. Some trails may have short-term closures, but detours and signage will maintain access whenever possible. SPS and SPR will communicate clearly about timelines, closures, and alternative options for recreation during construction.
 
+##### How will Seattle Public Schools handle trees affected by the project?
+
+Seattle Public Schools (SPS) will partner with Seattle Parks and Recreation (SPR) to evaluate any potential tree impacts using a holistic approach. Each tree will be assessed for its health, size, species, canopy coverage, and ecological role, with the shared goal of preserving as many trees as possible.
+
+If tree removal is necessary, SPS and SPR will develop a mitigation and replanting plan that aligns with Seattle Parks’ environmental standards and the City’s Urban Forest Management Plan. Replacement requirements are determined by city regulations: three new trees must be planted for every tree removed on City-owned land. 
+
 ##### How many trees would be removed for each option?
+
+We will not know how many trees will need to be removed until a site is selected and the project designs are done. Below is an estimate based on the test fit.
 
 **Option A:** Total tree removals OR impacted (not sure if removal will be required): 10 
 
@@ -204,7 +212,7 @@ Wallingford Playfield is not under consideration for the Lincoln High School ful
 
 SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work will begin this fall.
 
-#### **Community Information Meeting**
+#### Community Information Meeting
 
 On Saturday, Sept. 20, community members joined us to learn more about this project.
 
@@ -220,7 +228,7 @@ Those in attendance specifically referenced a need for:
 
 Concerns were raised about drainage and the high water table, and about scheduling.
 
-#### **Concept Image**
+#### Concept Image
 
 This image shows how the new track and related facilities could be located. It is not a final design.
 
