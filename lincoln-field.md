@@ -3,21 +3,34 @@ Track and Athletic Field for Lincoln High School
 
 ### Latest News
 
-#### Field Community Meeting Summary
+#### Progress Update: Oct. 30, 2025
 
-A summary of what we heard at the Sept. 20 community information meeting has been posted. (Oct. 9)
+Prior to our Nov. 6 community meeting about the full-size athletic field, we want to update you on what we have heard so far.
 
-#### New Date for Full-size Athletic Field meeting
+We posted Option A and Option B in September to collect feedback (see below). We have received a range of responses, and we appreciate the continued interest in this important project.
 
-*   New date, Thursday, Nov. 6., 6:30 p.m. in Lincoln gymnasium. (posted Sept. 18)
+Comments from the community have emphasized some of our highest priorities, including:
 
-#### Frequently Asked Questions (FAQs)
+*   Protecting trees
+*   Managing lighting
+*   Managing parking and traffic
+*   Maintaining the area’s character
 
-*   FAQs have been added for each project. (posted Sept. 11)
+Seattle Parks & Recreation and city reviewers also provided us with feedback on environmental, tree, and infrastructure considerations.
 
-#### Project 2, Option A revised to preserve BMX jumps
+**Path Forward**
 
-The concept drawings for Project 2 option A have been update to avoid impacts to the bicycle jumps. See Project 2. (posted Sept. 3)
+Based on community feedback and technical findings so far, Option A (Lower Woodland Field #2) appears to be the most feasible solution for moving ahead.
+
+This does not mean a decision has been made. We are providing an update to inform community in advance of our meeting on Nov. 6.
+
+**Continuing Engagement**
+
+Feedback from the Nov. 6 community meeting will help shape the final decision. It will also help with the design process and in developing mitigations, especially around trees.
+
+*   SPS will continue to coordinate with Seattle Parks & Recreation and other city agencies.
+*   We will schedule an informational meeting once a decision is final.
+*   We have updated this website and the included FAQ, below, and will continue to do so as the project progresses.
 
 ### About the Projects
 
