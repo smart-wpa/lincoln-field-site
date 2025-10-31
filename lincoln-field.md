@@ -5,7 +5,7 @@ Track and Athletic Field for Lincoln High School
 
 Community Meeting Reminder
 
-Join us on Thursday, Nov. 6 at 6:30 p.m. about locating a new full-size athletic field at Woodland Park.  
+Join us on Thursday, Nov. 6 at 6:30 p.m. to learn about the project to locate a new full-size athletic field at Woodland Park.  
 Location: Lincoln High School, 4400 Interlake Ave. N (gymnasium)
 
 ### Latest News
