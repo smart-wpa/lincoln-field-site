@@ -1,43 +1,11 @@
 Track and Athletic Field for Lincoln High School
 ------------------------------------------------
 
-.cls-1{fill:#191919;}
-
-Community Meeting Reminder
-
-Join us on Thursday, Nov. 6 at 6:30 p.m. to learn about the project to locate a new full-size athletic field at Woodland Park.  
-Location: Lincoln High School, 4400 Interlake Ave. N (gymnasium)
-
 ### Latest News
 
-#### Progress Update: Oct. 30, 2025
+#### Progress Update: Nov. 17, 2025
 
-Prior to our Nov. 6 community meeting about the full-size athletic field, we want to update you on what we have heard so far.
-
-We posted Option A and Option B in September to collect feedback (see below). We have received a range of responses, and we appreciate the continued interest in this important project.
-
-Comments from the community have emphasized some of our highest priorities, including:
-
-*   Protecting trees
-*   Managing lighting
-*   Managing parking and traffic
-*   Maintaining the area’s character
-
-Seattle Parks & Recreation and city reviewers also provided us with feedback on environmental, tree, and infrastructure considerations.
-
-**Path Forward**
-
-Based on community feedback and technical findings so far, Option A (Lower Woodland Field #2) appears to be the most feasible solution for moving ahead.
-
-This does not mean a decision has been made. We are providing an update to inform community in advance of our meeting on Nov. 6.
-
-**Continuing Engagement**
-
-Feedback from the Nov. 6 community meeting will help shape the final decision. It will also help with the design process and in developing mitigations, especially around trees.
-
-*   SPS will continue to coordinate with Seattle Parks & Recreation and other city agencies.
-*   We will schedule an informational meeting once a decision is final.
-*   We have updated this website and the included FAQ, below, and will continue to do so as the project progresses.
+Thank you to all who joined us on Nov. 6, 2025 at Lincoln High School.
 
 ### About the Projects
 
