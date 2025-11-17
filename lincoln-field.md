@@ -3,9 +3,7 @@ Track and Athletic Field for Lincoln High School
 
 ### Latest News
 
-#### Update: Nov. 17, 2025
-
-Thank you to all who joined us on Nov. 6, 2025 at Lincoln High School.
+Please scroll down to see the presentation from the Nov. 6, 2025, meeting and the revised Option A test fit.
 
 ### About the Projects
 
@@ -21,14 +19,13 @@ By adding a new athletic field somewhere in Woodland Park, we will provide a “
 
 This field would be added to the interlocal agreement between SPS and SPR. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of scheduled school use.
 
-#### In-Person Community Meeting: New date, location set
+#### Community Meeting Held November 6
 
-Join SPS and Seattle Parks and Recreation for a community meeting to discuss potential locations at Woodland Park for the new full-size athletic field.
+Thank you to those who joined us for the community meeting at Lincoln High School.
 
-*   **New Date: Thursday, Nov. 6, 2025**
-*   **New Time: 6:30 p.m.**
-*   **Location: Lincoln High School gymnasium**
-*   [Share your questions or feedback ahead of the meeting using Let’s Talk](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
+You can download the [presentation](//www.seattleschools.org/wp-content/uploads/2025/11/Lincoln-HS-Field-Woodland-Park-Mtg-Nov-6-Presentation-DRAFT.pdf). The revised image for option A is posted. As a reminder, this is not a design image. It is a schematic to test options for fit.
+
+[Please continue to share your questions or feedback using Let’s Talk](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
 #### Field Location
 
