@@ -3,7 +3,7 @@ Track and Athletic Field for Lincoln High School
 
 ### Latest News
 
-#### Progress Update: Nov. 17, 2025
+#### Update: Nov. 17, 2025
 
 Thank you to all who joined us on Nov. 6, 2025 at Lincoln High School.
 
@@ -40,11 +40,13 @@ These images show concepts to test fit of the field, not project designs. It’s
 
 Thank you to the many community members who provided insight into the importance of maintaining these jumps.
 
-**Updated** **Option A: Lower Woodland Field #2**
+**Nov. 6-Revised** **Option A: Lower Woodland Field #2**
 
-[![aerial photo of a park with a football field to the left and a soccer field to the right imposed over the photo](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.png)](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.png)
+[![two fields imposed over an aerial photo ](//www.seattleschools.org/wp-content/uploads/2025/11/Lower-Woodland-2-Schematic-Alt-11-4-25-update-scaled.jpg)](//www.seattleschools.org/wp-content/uploads/2025/11/Lower-Woodland-2-Schematic-Alt-11-4-25-update-scaled.jpg)
 
-[Option A image](//www.seattleschools.org/wp-content/uploads/2025/09/Lower-Woodland-Field-2-9-2-25.pdf)
+Revised Option A
+
+[Revised Option A image for download](//www.seattleschools.org/wp-content/uploads/2025/11/F-0.1-Lower-Woodland-2-Schematic-Alt-11-4-25.pdf)
 
 **Option B: Parking Lot at N. 50th Street and Aurora Ave. N**
 
