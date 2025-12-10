@@ -23,7 +23,7 @@ This field would be added to the interlocal agreement between SPS and SPR. This 
 
 Thank you to those who joined us for the community meeting at Lincoln High School.
 
-You can download the [presentation](//www.seattleschools.org/wp-content/uploads/2025/11/Lincoln-HS-Field-Woodland-Park-Mtg-Nov-6-Presentation-DRAFT.pdf). The revised image for option A is posted. As a reminder, this is not a design image. It is a schematic to test options for fit.
+[Download the Lincoln High School Community Meeting presentation](//www.seattleschools.org/wp-content/uploads/2025/11/Lincoln-HS-Field-Woodland-Park-Mtg-Nov-6-Presentation-DRAFT.pdf). The revised image for option A is posted. As a reminder, this is not a design image. It is a schematic to test options for fit.
 
 [Please continue to share your questions or feedback using Let’s Talk](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
