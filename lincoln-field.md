@@ -29,9 +29,9 @@ Thank you to those who joined us for the community meeting at Lincoln High Schoo
 
 #### Field Location
 
-Two locations have been identified as possible places to build the new field, Lower Woodland Field #2 and a parking lot at N. 50th St. and Aurora Ave. N. We will discuss these options at the community meeting.
+Two locations have been identified as possible places to build the new field, Lower Woodland Field #2 and a parking lot at N. 50th St. and Aurora Ave. N.
 
-These images show concepts to test fit of the field, not project designs. It’s important to consider how a field might fit on a space before exploring further.
+These images show **concepts** to test fit the field, **not project designs.** It’s important to consider how a field might fit on a space before exploring further.
 
 **New Information:** Our updated test fit layout ensures that the field in option A will no longer impact the BMX bicycle jump area. Please see below.
 
