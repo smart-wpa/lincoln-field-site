@@ -33,19 +33,19 @@ These images show **concepts** to test fit the field, **not project designs.** I
 
 Thank you to the many community members who provided insight into the importance of maintaining these jumps.
 
-**Nov. 6-Revised** **Option A: Lower Woodland Field #2**
+**Nov. 6-Revised** **Option A Concept Image: Lower Woodland Field #2**
 
 [![two fields imposed over an aerial photo ](//www.seattleschools.org/wp-content/uploads/2025/11/Lower-Woodland-2-Schematic-Alt-11-4-25-update-scaled.jpg)](//www.seattleschools.org/wp-content/uploads/2025/11/Lower-Woodland-2-Schematic-Alt-11-4-25-update-scaled.jpg)
 
 Revised Option A
 
-[Revised Option A image for download](//www.seattleschools.org/wp-content/uploads/2025/11/F-0.1-Lower-Woodland-2-Schematic-Alt-11-4-25.pdf)
+[Revised Option A concept image for download](//www.seattleschools.org/wp-content/uploads/2025/11/F-0.1-Lower-Woodland-2-Schematic-Alt-11-4-25.pdf)
 
-**Option B: Parking Lot at N. 50th Street and Aurora Ave. N**
+**Option B: Parking Lot at N. 50th Street and Aurora Ave. N. Concept Image**
 
 [![aerial of a wooded park with playfields surrounded by streets. A football/soccer field is imposed on top of the photo.](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.png)](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.png)
 
-[Option B image](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.pdf)
+[Option B concept image](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.pdf)
 
 #### Frequently Asked Questions on the Full-Size Athletic Field
 
