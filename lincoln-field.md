@@ -193,7 +193,7 @@ Wallingford Playfield is not under consideration for the Lincoln High School ful
 
 ### Project 1: Track Upgrades at Woodland Park
 
-SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work will begin this fall.
+SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work is in progress.
 
 #### Community Information Meeting
 
