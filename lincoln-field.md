@@ -3,7 +3,7 @@ Track and Athletic Field for Lincoln High School
 
 ### Latest News
 
-Please scroll down to see the presentation from the Nov. 6, 2025, meeting and the revised Option A test fit.
+An additional question and answer has been added to the FAQ. Please scroll down.
 
 ### About the Projects
 
@@ -52,6 +52,17 @@ Revised Option A
 [Option B image](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.pdf)
 
 #### Frequently Asked Questions on the Full-Size Athletic Field
+
+##### NEW. Are you considering the suggestion some are calling Option C (not proposed by SPS)?
+
+The voter-approved [2022 Capital Levy](https://www.seattleschools.org/about/levy/2022-capital-levy/) funds the development of a new, full-size athletic field that can accommodate football and soccer, for Lincoln High School. The school levy dollars are limited to delivering a single new field that meets Lincoln’s athletic and instructional needs. With the interlocal agreement between SPS and Seattle Parks & Recreation, the field would be available for community scheduling as well.
+
+As described on this webpage, the district is evaluating two locations for a new field. 
+
+*   Option A involves converting the existing Field #2 into two fields but requires the infrastructure work similar to building one field since they are co-located. 
+*   Option B was a community recommended location that would build only the new field and not make modifications to Field #2. 
+
+The number of trees impacted, the amount of infrastructure work, and the potential costs required for Option B has led SPS to a preference for Option A. The suggestion referred to as “Option C” (not proposed by SPS) relies on modifying and upgrading an existing Seattle Parks & Recreation field (Field #2) AND constructing a new field. Building two fields is beyond the scope and budget of the project. 
 
 ##### Why does Lincoln High School need an athletics practice field?
 
