@@ -3,13 +3,13 @@ Track and Athletic Field for Lincoln High School
 
 ### Latest News
 
-An additional question and answer has been added to the FAQ. Please scroll down.
+An additional question and answer has been added to the field [FAQ.](http://FieldFAQ) Please scroll down.
 
-### About the Projects
+### About the 2 Projects
 
 Lincoln High School is the only high school in the district without an athletic field or track. Funding to add these facilities were included in the voter-approved Buildings, Technology, and Athletics/Academics Capital Levy (BTA V) in 2022.
 
-There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations.
+There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations. The track and athletic field have been split to two projects. [Project 1](http://Project1) is the track and project 2 is the full-sized athletic field.
 
 ### Project 2: Full-Size Athletic Field
 
