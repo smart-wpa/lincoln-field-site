@@ -108,8 +108,6 @@ Revised Option A
 
 [![aerial of a wooded park with playfields surrounded by streets. A football/soccer field is imposed on top of the photo.](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.png)](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.png)
 
-[Option B concept image](//www.seattleschools.org/wp-content/uploads/2025/09/SW-LWP-N50th-St-Parking-Lot-Site-9-2-25.pdf)
-
 #### Frequently Asked Questions on the Full-Size Athletic Field
 
 ##### Why does Lincoln High School need an athletics practice field?
