@@ -1,11 +1,74 @@
 Track and Athletic Field for Lincoln High School
 ------------------------------------------------
 
-### About the 2 Projects
+### Latest News
+
+#### Community Meeting — Saturday, April 25
+
+We will hold a community meeting to share updates on the project to build a full-size synthetic athletic field for Lincoln High School students.
+
+*   **Saturday, April 25, 2026**
+*   **10 a.m. to 11:30 a.m.**
+*   **Hamilton International Middle School, 1610 N 41st St.**
+
+At this meeting we will share our evaluation of the final two options at Woodland Park: one that adds an additional field at Lower Woodland Field #2 and one that adds a new field at N. 50th Street and Aurora Avenue N.
+
+We will collect feedback, and then we will consult with Seattle Parks & Recreation to make the final selection.
+
+Once a location is selected, we will continue to share updates with the community as we work to design and construct this field.
+
+Community input has directly shaped this work. Over the past 3 years, we have heard from hundreds of people via email, the district’s Let’s Talk portal, community meetings, social media comments, petitions, news articles, and more.
+
+#### Athletic Field Project Criteria
+
+**Requirements**
+
+*   Walkable location from Lincoln High School
+*   New field capacity (no displacement of current users)
+*   Regulation size play for high school JV boys’ and girls’ soccer, JV football
+*   Basic facilities such as equipment storage and public restrooms
+
+**Constraints**
+
+*   Suitable for varsity soccer
+*   Tree and environmental impacts
+*   Permitting and land use requirements
+*   Parking impacts
+*   Budgetary constraints
+
+### About the Project
 
 Lincoln High School is the only high school in the district without an athletic field or track. Funding to add these facilities were included in the voter-approved Buildings, Technology, and Athletics/Academics Capital Levy (BTA V) in 2022.
 
-There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations. The track and athletic field have been split to two projects. [Project 1](http://Project1) is the track and project 2 is the full-sized athletic field. We have moved project 2 to the top as decisions have been made on the track project.
+There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations.
+
+By adding a new athletic field somewhere in Woodland Park, we will provide a “home field” for Lincoln student athletes and for physical education (PE) classes.
+
+This field would be added to the interlocal agreement between SPS and SPR. This agreement provides SPS students with athletic facilities and allows those facilities to be used by the larger community outside of scheduled school use.
+
+**Funding**
+
+This project is funded by the [Buildings, Technology, and Academics/Athletics Capital Levy](https://www.seattleschools.org/about/levy/2022-capital-levy/) (BTA V), which was approved by Seattle voters in 2022.
+
+These funds cannot help the district close the budget gap. Funding from a capital levy must be used for the specified purposed. Capital levy project funding cannot be transferred to the general fund, which is the account where operations and staffing are budgeted.
+
+**Project Team**
+
+**Project Management Firm:** Shiels Obletz Johnsen (SOJ)
+
+**SOJ Project Manager:** Paige McGehee, [paigem@sojsea.com](mailto:paigem@sojsea.com)
+
+**Design and Engineering Firm:** McGranahan PBK
+
+Lincoln High School is the only high school in the district without an athletic field or track. Funding to add these facilities were included in the voter-approved Buildings, Technology, and Athletics/Academics Capital Levy (BTA V) in 2022.
+
+There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations. The track and athletic field have been split to two projects. [Project 1](http://Project1) is the track and project 2 is the full-sized athletic field. We
+
+#### Track Upgrades at Woodland Park
+
+SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country.
+
+**Concept Image**
 
 ### Project 2: Full-Size Athletic Field
 
@@ -214,8 +277,6 @@ Concerns were raised about drainage and the high water table, and about scheduli
 #### Concept Image
 
 This image shows how the new track and related facilities could be located. It is not a final design.
-
-[![aerial photo of a park with a oval running track and other shapes placed over the image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1-1024x768.jpg)](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1.jpg)
 
 [Track concept image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2.pdf)
 
