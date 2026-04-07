@@ -24,13 +24,12 @@ Community input has directly shaped this work. Over the past 3 years, we have he
 **Requirements**
 
 *   Walkable location from Lincoln High School
-*   New field capacity (no displacement of current users)
+*   New field capacity (no displacement of current field use)
 *   Regulation size play for high school JV boys’ and girls’ soccer, JV football
 *   Basic facilities such as equipment storage and public restrooms
 
 **Constraints**
 
-*   Suitable for varsity soccer
 *   Tree and environmental impacts
 *   Permitting and land use requirements
 *   Parking impacts
@@ -186,25 +185,11 @@ In 2024, SPS explored options for locating the athletic field at Wallingford Pla
 
 Wallingford Playfield is not under consideration for the Lincoln High School full-size athletic field.
 
-### Project 1: Track Upgrades at Woodland Park
+### Track Upgrades at Woodland Park
 
-SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country. Design work is in progress.
-
-#### Community Information Meeting
-
-On Saturday, Sept. 20, community members joined us to learn more about this project.
-
-[![outdoor meeting with one person standing with presentation board on easel and a group of people facing them in chairs](//www.seattleschools.org/wp-content/uploads/2025/10/meeting-20Sept2025jpg.jpg)](//www.seattleschools.org/wp-content/uploads/2025/10/meeting-20Sept2025jpg.jpg)
+SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the track upgrades at Lower Woodland Field #7, which is owned by SPR. These improvements will support Lincoln’s robust track and field program. Our goal is to make the space functional for both track and cross country.
 
 **What we heard**
-
-Those in attendance specifically referenced a need for:
-
-*   A fence all the way across behind the goals to keep lacrosse balls from the parking lots (they go at a high rate of speed)
-*   Low fence to keep soccer balls from rolling onto track
-*   Separating the walking path from the track (and keeping it usable during construction)
-
-Concerns were raised about drainage and the high water table, and about scheduling.
 
 #### Concept Image
 
