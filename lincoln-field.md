@@ -41,7 +41,7 @@ Lincoln High School is the only high school in the district without an athletic 
 
 There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations.
 
-#### Frequently Asked Questions on the Full-Size Athletic Field
+### Frequently Asked Questions on the Full-Size Athletic Field
 
 ##### Why does Lincoln High School need an athletics practice field?
 
@@ -93,30 +93,6 @@ Seattle Public Schools (SPS) will partner with Seattle Parks and Recreation (SPR
 
 If tree removal is necessary, SPS and SPR will develop a mitigation and replanting plan that aligns with Seattle Parks’ environmental standards and the City’s Urban Forest Management Plan. Replacement requirements are determined by city regulations: three new trees must be planted for every tree removed on City-owned land. 
 
-##### How many trees would be removed for each option?
-
-We will not know how many trees will need to be removed until a site is selected and the project designs are done. Below is an estimate based on the test fit.
-
-**Option A:** Total tree removals OR impacted (not sure if removal will be required): 10 
-
-*   9 will be removed 
-
-*   6 of those are large trees ≥24 inches
-
-*   1 will require further study on impacts and may be retained
-
-**Option B:** Total tree removals OR impacted (not sure if removal will be required): 78
-
-Removal
-
-*   42 are large trees ≥24 inches
-*   21 are smaller trees <24 inches 
-
-Not sure if removal required
-
-*   8 are smaller trees impacted  <24 inches (may be removed – more study required)
-*   7 are large trees impacted  ≥24 inches (may be removed – more study required)
-
 ##### Will the community be able to use the new full-size athletic field if it is located within Woodland Park?
 
 Yes. The full-size athletic field will provide space for both the school and the broader community. The new field will become part of the SPR inventory of fields that is part of the interlocal agreement between SPS and SPR.
@@ -136,10 +112,6 @@ Lincoln’s campus footprint and existing parking lot size cannot accommodate a 
 ##### Why do you need to add another field? It seems like the two soccer fields that are at Lower Woodland are empty a lot.
 
 During the 3-month fall season and the 3-month spring season, both fields are booked to 100% capacity for use by youth and adult teams and by Lincoln teams.
-
-##### Why is Option B (parking lot site) being considered, even though some say it’s too far from Lincoln or from other athletic facilities?
-
-Option B is under consideration because it transforms an underused gravel parking lot into an active recreational space. While it is slightly farther from Lincoln than Option A, it remains within walking distance and could offer better access to restrooms, visibility, and traffic management opportunities. The siting study is designed to weigh these trade-offs alongside community feedback.
 
 ##### Could one of the existing soccer fields be converted into a dual-use football/soccer field instead of building a new one?
 
@@ -195,7 +167,7 @@ This image shows how the new track and related facilities could be located. It i
 
 [Track concept image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2.pdf)
 
-#### Frequently Asked Questions About the Track
+### Frequently Asked Questions About the Track
 
 ##### Why does Lincoln High School need a track?
 
