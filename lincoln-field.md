@@ -11,6 +11,8 @@ We will hold a community meeting to share updates on the project to build a full
 *   **10 a.m. to 11:30 a.m.**
 *   **Hamilton International Middle School, 1610 N 41st St.**
 
+The meeting will also be [live-streamed on SPSTV](https://youtube.com/@seattlepublicschoolstv) and posted for later viewing.
+
 At this meeting we will share our evaluation of the final two options at Woodland Park: one that adds an additional field at Lower Woodland Field #2 and one that adds a new field at N. 50th Street and Aurora Avenue N.
 
 We will collect feedback, and then we will consult with Seattle Parks & Recreation to make the final selection.
