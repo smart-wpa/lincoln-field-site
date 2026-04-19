@@ -3,6 +3,10 @@ Track and Athletic Field for Lincoln High School
 
 ### Latest News
 
+#### Final Location Options
+
+[![aerial image from Google maps with insets added to show the location of Lower Woodland Field #2, and a parking lot at N. 50th and Aurora Ave N as the two location options](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-RLB-Presentation-tc-overview-1024x577.png)](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-RLB-Presentation-tc-overview.png?ver=1776625475)
+
 #### Community Meeting — Saturday, April 25
 
 We will hold a community meeting to share updates on the project to build a full-size synthetic athletic field for Lincoln High School students.
