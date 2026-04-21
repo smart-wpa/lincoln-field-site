@@ -35,7 +35,7 @@ _Seattle Only_
 
 **Comcast** (channels 319 & 26) **Wave** (695 & 26) **Century Link** (8508 & 8008)
 
-At this meeting we will share our evaluation of the final two options for locating an athletic field at Woodland Park: one that adds an additional field at Lower Woodland Field #2 and one that adds a new field at N. 50th Street and Aurora Avenue N.
+At this meeting we will share our evaluation of the final two options for locating an athletic field at Woodland Park: an additional field at Lower Woodland Field #2 or a new field at N. 50th Street and Aurora Avenue N.
 
 We will collect feedback at the meeting and through an online survey, and then we will consult with Seattle Parks & Recreation to make the final selection.
 
