@@ -68,8 +68,8 @@ The 2022 Buildings, Technology, and Academics Capital Levy (BTA V) included $5 m
 
 Estimated total development costs:
 
-*   Option A:         **$$8,610,000**
-*   Option B:         **$$9,425,000**
+*   Option A:         **$8,610,000**
+*   Option B:         **$9,425,000**
 *   Option C:         **$11,465,000**
 
 **How will you pay for the field if the full cost wasn’t included in the levy?**
