@@ -21,21 +21,15 @@ You can provide your feedback on the three options presented by using an online 
 
 **Livestream, Broadcast, & On-Demand Videos**
 
-**YouTube**
+*   [**YouTube**](https://www.youtube.com/@seattlepublicschoolstv)
+*   [**SPS Website**](https://www.seattleschools.org/broadcast)
+*   [**Vimeo**](https://www.vimeo.com/seattlepublicschoolstv)
 
-[www.youtube.com/@seattlepublicschoolstv](https://www.youtube.com/@seattlepublicschoolstv)
+**Seattle Only:**
 
-**SPS Website**
-
-[www.seattleschools.org/broadcast](https://www.seattleschools.org/broadcast)
-
-**Vimeo**
-
-[www.vimeo.com/seattlepublicschoolstv](https://www.vimeo.com/seattlepublicschoolstv)
-
-_Seattle Only_
-
-**Comcast** (channels 319 & 26) **Wave** (695 & 26) **Century Link** (8508 & 8008)
+*   **Comcast** (channels 319 & 26)
+*   **Wave** (695 & 26)
+*   **Century Link** (8508 & 8008)
 
 At this meeting we will share our evaluation of the final two location options for an athletic field at Woodland Park: an additional field at Lower Woodland Field #2 (Option A) or a new field at N. 50th Street and Aurora Avenue N. (Option B or Option C)
 
