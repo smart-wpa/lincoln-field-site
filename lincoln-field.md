@@ -17,7 +17,7 @@ We will hold a community meeting to share updates on the project to build a full
 
 The meeting will also be live-streamed on SPSTV and posted for later viewing.
 
-You can provide your feedback on the three options presented by using the [online form.](https://forms.cloud.microsoft/r/Qx5hjFWGRD) There will also be comment cards at the meeting — using the online form will ensure that your feedback is collected in your own words.
+You can provide your feedback on the three options presented by using an online form. There will also be comment cards at the meeting — using the online form will ensure that your feedback is collected in your own words.
 
 **Livestream, Broadcast, & On-Demand Videos**
 
@@ -39,7 +39,7 @@ _Seattle Only_
 
 At this meeting we will share our evaluation of the final two location options for an athletic field at Woodland Park: an additional field at Lower Woodland Field #2 (Option A) or a new field at N. 50th Street and Aurora Avenue N. (Option B or Option C)
 
-We will collect feedback at the meeting through an [online form](https://forms.cloud.microsoft/r/Qx5hjFWGRD) or through written comment cards. After the meeting, we will consult with Seattle Parks & Recreation to make the final selection.
+We will collect feedback at the meeting through an online form or through written comment cards. After the meeting, we will consult with Seattle Parks & Recreation to make the final selection.
 
 Once a location is selected, we will continue to share updates with the community as we work to design and construct this field.
 
