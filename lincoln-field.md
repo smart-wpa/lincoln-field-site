@@ -43,6 +43,57 @@ Once a location is selected, we will continue to share updates with the communit
 
 Community input has directly shaped this work. Over the past 3 years, we have heard from hundreds of people via email, the district’s Let’s Talk portal, community meetings, social media comments, petitions, news articles, and more.
 
+#### FAQ for Meeting
+
+**What are you showing at the meeting on Saturday?**
+
+We will show evaluations of three field options: one at Lower Woodland Field #2 (Option A) and two options at the 50th and Aurora location (Option B and Option C).
+
+**Why do you need to add another field? It seems like the two soccer fields that are at Lower Woodland are often empty.**
+
+During the 3-month fall season and the 3-month spring season, both fields are booked to 100% capacity for use by youth and adult teams and by Lincoln teams.
+
+**What are the priorities for the new field?**
+
+*   The new athletic field needs to be within walking distance (half mile) from the school
+*   It needs to be a new athletic field; any repurposing of an existing field would be displacing existing users
+*   The athletic field needs to be a full-size with the ability to accommodate JV games for all girls’ and boys’ sports
+*   The project needs to provide storage and restroom facilities
+
+**Have you done a study of “Option C”?**
+
+The project design team has spent extensive time on studying this option as well as Option A and Option B.
+
+**How much was included in the levy to pay for the new athletic field?**
+
+The 2022 Buildings, Technology, and Academics Capital Levy (BTA V) included $5 million for the project in 2022 dollars.
+
+**What are the cost estimates for each option?**
+
+Estimated total development costs:
+
+*   Option A:         **$$8,610,000**
+*   Option B:         **$$9,425,000**
+*   Option C:         **$11,465,000**
+
+**How will you pay for the field if the full cost wasn’t included in the levy?**
+
+There are contingency funds in all capital levies that will help with some of the costs. The BEX V capital levy also included funding to develop natural grass athletic fields at Fort Lawton. Those fields were under consideration to provide relief for the use of Lower Woodland synthetic turf fields by Lincoln High School. The planned fields were contingent on redevelopment of Fort Lawton. Some of that funding could be re-programmed as it’s use is consistent with the initial intent.
+
+**Will the community be able to use the new athletic field?**
+
+Yes. Seattle Parks & Recreation (SPR) will continue to own any athletic fields within Woodland Park. The new field will be included in the joint operating agreement between Seattle Public Schools (SPS) and SPR.
+
+**What role does Seattle Parks & Recreation (SPR) play in this project?**
+
+SPR is a close partner to SPS in identifying potential locations and logistics for the athletic field. After this meeting, SPS will consult with SPR to make a final decision on the location of the new field.
+
+**Will there be bleachers or other seating at the field once a location is selected?**
+
+There will be portable bleachers to accommodate at least 100 spectators.
+
+**Have you done parking and traffic studies on these options?** We have considered parking and traffic impacts in all our site evaluations. Formal parking studies will be conducted as part of the permitting process.
+
 #### Athletic Field Project Criteria
 
 **Requirements**
@@ -65,7 +116,7 @@ Lincoln High School is the only high school in the district without an athletic 
 
 There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations.
 
-### Frequently Asked Questions on the Full-Size Athletic Field
+### Frequently Asked Questions on the Full-Size Athletic Field (prior to April 2026)
 
 ##### Why does Lincoln High School need an athletics practice field?
 
