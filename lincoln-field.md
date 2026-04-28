@@ -3,39 +3,98 @@ Track and Athletic Field for Lincoln High School
 
 ### Latest News
 
-#### Final Location Options
+**Tree reports**
 
-[![aerial image from Google maps with insets added to show the location of Lower Woodland Field #2, and a parking lot at N. 50th and Aurora Ave N as the two location options](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-RLB-Presentation-tc-overview-1024x577.png)](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-RLB-Presentation-tc-overview.png?ver=1776625475)
+*   [Lower Woodland Field #2](https://www.seattleschools.org/wp-content/uploads/2026/04/WP-Field-2-Arborist-Tree-Table-and-Site-Map.pdf)
+*   [50th & Aurora gravel lot](https://www.seattleschools.org/wp-content/uploads/2026/04/WP-Gravel-Lot_-Arborist-Tree-Table-and-Site-Map.pdf)
 
-#### Community Meeting — Saturday, April 25
+### Community Meeting on Field Location Options
 
-We will hold a community meeting to share updates on the project to build a full-size synthetic athletic field for Lincoln High School students.
+Thank you for joining us on Saturday, April 25 at Hamilton International Middle School.
 
-*   **Saturday, April 25, 2026**
-*   **10 a.m. to 11:30 a.m.**
-*   **Hamilton International Middle School, 1610 N 41st St.**
+At this meeting we shared our evaluation of the final two location options for an athletic field at Woodland Park: an additional field at Lower Woodland Field #2 **(Option A**) or a new field at N. 50th Street and Aurora Avenue N. (**Option B or Option C**).
 
-The meeting will also be live-streamed on SPSTV and posted for later viewing.
+You can download the presentation as a [PDF file](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada.pdf)or view it as slides below.
 
-You can provide your feedback on the three options presented by using an online form. There will also be comment cards at the meeting — using the online form will ensure that your feedback is collected in your own words.
+![Title slide for Lincoln High School Field and Track community meeting on April 25, 2026, listing presenters from Seattle Public Schools and project partners. Seattle Public Schools and Building for Learning logos appear at the bottom.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_01-1.png)
 
-**Livestream, Broadcast, & On-Demand Videos**
+![Agenda text with two images: Two students on an outdoor athletic field, one riding on the other’s back, with a soccer goal and school buildings in the background. and A group of students wearing sports uniforms walk together across a field at sunset.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_02.png)
 
-*   [**YouTube**](https://www.youtube.com/@seattlepublicschoolstv)
-*   [**SPS Website**](https://www.seattleschools.org/broadcast)
-*   [**Vimeo**](https://www.vimeo.com/seattlepublicschoolstv)
+![Land acknowledgement slide](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_03.png)
 
-**Seattle Only:**
+![Slide titled ‘Today’s Time Together’ outlining meeting objectives, time allocations, and a prompt for community feedback. With a QR code for feedback](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_04.png)
 
-*   **Comcast** (channels 319 & 26)
-*   **Wave** (695 & 26)
-*   **Century Link** (8508 & 8008)
+![Slide titled ‘SPS/SPR Joint Use Agreement’ describing the long‑standing partnership between Seattle Public Schools and Seattle Parks and Recreation to share facilities for student and community recreation, with priority use defined under the agreement.”](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_05.png)
 
-At this meeting we will share our evaluation of the final two location options for an athletic field at Woodland Park: an additional field at Lower Woodland Field #2 (Option A) or a new field at N. 50th Street and Aurora Avenue N. (Option B or Option C)
+![Slide titled ‘Project Drivers’ listing project requirements and constraints for a new multi‑use athletic field, including field size standards, added capacity, walkable access, basic facilities, environmental and permitting impacts, parking, lighting, and budget limits.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_06.png)
 
-We will collect feedback at the meeting through an online form or through written comment cards. After the meeting, we will consult with Seattle Parks & Recreation to make the final selection.
+![lide titled ‘Project History and Community Input’ showing a timeline from 2022 to 2026 demonstrating how community feedback shaped site selection and project changes, along with a list of outreach methods and resulting design adjustments.”](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_07.png)
 
-Once a location is selected, we will continue to share updates with the community as we work to design and construct this field.
+![Aerial view of Woodland Park labeled to show two potential project areas: ‘50th and Aurora’ and ‘Lower Woodland Field #2,’ along with nearby amenities including tennis courts, restrooms, BMX area, skate area, softball and baseball fields, storage, and track and field facilities.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_08.png)
+
+![Slide titled ‘Field Options’ comparing three layout alternatives—Option A, Option B, and Option C—showing different placements for football and soccer fields within the park.”](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_09.png)
+
+![Slide titled ‘Permitting’ listing required permits applicable to all project options, including SEPA, City of Seattle conditional use permits, Department of Ecology NPDES permits, and building permits, with additional environmental impact and master use permit requirements specific to the 50th and Aurora options.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_10.png)
+
+![Aerial rendering of Lower Woodland Field #2 illustrating Option A, showing proposed soccer and football fields adjacent to existing track and field event areas within Woodland Park.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_11.png)
+
+![Plan view diagram for Option A at Lower Woodland Field #2 showing two adjacent fields: a soccer field measuring approximately 180 by 330 feet and a combined football and soccer field measuring approximately 195 by 330 feet.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_12.png)
+
+![Rendered aerial perspective of Option A at Lower Woodland Field #2 showing two adjacent athletic fields in use, with labeled fencing heights around the perimeter and between fields, pedestrian pathways, and nearby park amenities including existing track and field areas.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_13.png)
+
+![Slide titled ‘Example: Double Fields’ showing two aerial reference images of athletic facilities in Edmonds and Shoreline, Washington, each illustrating side‑by‑side soccer fields within a school or park setting.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_14.png)
+
+![lide titled ‘Example: Double Fields’ showing aerial views of athletic complexes at Ingraham High School in Seattle and Preston Athletic Fields in Issaquah, demonstrating multiple adjacent rectangular sports fields within developed sites.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_15.png)
+
+![Slide titled ‘Example: Double Fields’ showing two aerial reference images: Central Park Fields in Issaquah and Starfire Sports in Tukwila, each illustrating adjacent rectangular athletic fields within park or sports complex settings.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_16.png)
+
+![Slide titled ‘Option A: Lower Woodland Field #2’ summarizing permitting requirements, conceptual cost estimates, and a tentative multi‑year project timeline showing approvals, design and permitting, and construction phases.”](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_17.png)
+
+![Rendered aerial view of Option B at 50th and Aurora showing a proposed football field site highlighted near surrounding residential streets, with existing Lower Woodland athletic fields, track and field event areas, and park amenities visible nearby.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_18.png)
+
+![ered aerial perspective of Option B at 50th and Aurora showing a proposed football field within a wooded park setting, with labeled retaining walls, fencing, nearby roads, and surrounding pedestrian paths.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_19.png)
+
+![“Plan view diagram of Option B at 50th and Aurora showing a combined football and soccer field measuring approximately 195 by 330 feet, overlaid on an aerial map with surrounding streets, trees, and park features.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_20.png)
+
+![Slide titled ‘Option B: 50th and Aurora Football Field’ summarizing permitting requirements, conceptual cost estimates, and a multi‑year project timeline showing approvals, design and studies, permitting, and construction phases.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_21.png)
+
+![Rendered aerial view of Option C showing a proposed soccer field at 50th and Aurora and a football field at Lower Woodland, both highlighted within the broader Woodland Park area near existing track and field facilities.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_22.png)
+
+![Rendered aerial perspective of the proposed soccer field at 50th and Aurora for Option C, showing labeled retaining walls, fencing, field lighting, adjacent trees, and nearby streets](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_23.png)
+
+![Rendered aerial view showing proposed football field improvements at Lower Woodland Field #2 for Option C, including fencing, field layout markings, and adjacent park pathways within Woodland Park.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_24.png)
+
+![Plan view diagram for Option C showing a proposed soccer field at 50th and Aurora measuring approximately 180 by 300 feet, overlaid on an aerial map with surrounding streets, trees, and adjacent park features.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_25.png)
+
+![Plan view diagram for Option C at Lower Woodland showing a combined football and soccer field measuring approximately 195 by 330 feet, with field markings overlaid on an aerial view of the existing site and surrounding pathways.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_26.png)
+
+![Slide titled ‘Option C: 50th and Soccer Field’ summarizing permitting requirements, conceptual cost estimates for two fields, and a tentative project timeline showing approvals, design and studies, permitting, and construction phases through 2029.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_27.png)
+
+![Table titled ‘Matrix of Options’ comparing Options A, B, and C across criteria including field dimensions, tree impacts, stormwater approach, grading impacts, effects on other users, parking impacts, estimated completion dates, and estimated costs.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_28.png)
+
+![Slide titled ‘Changes in Response to Community Feedback’ summarizing design and site adjustments made for Wallingford, Option A, Option B, and Option C based on community input, feasibility analysis, and environmental considerations.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_29.png)
+
+![Table titled ‘SPS and SPR Program Goals’ showing which sports programs and uses are supported under Options A, B, and C, using check marks and X symbols to indicate compatibility across football, soccer, lacrosse, and ultimate programs.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_30.png)
+
+![Overview slide comparing Options A, B, and C with aerial images highlighting field locations, along with bullet lists summarizing key benefits and key challenges for each option](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_31.png)
+
+![lide titled ‘Station Sessions’ asking what additional information should be considered before selecting among the three options, with instructions to submit feedback using an online form or comment card. + QR code linking to the Lincoln High School Athletic Field community feedback form.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_32.png)
+
+![Slide titled ‘Station Sessions: Report Out’ displayed over a close‑up image of an artificial turf field with yard line markings.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_33.png)
+
+![Slide titled ‘Moving Ahead’ outlining next steps, including reviewing community feedback and selecting a final location, followed by future phases of design, permitting, construction, and field use.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_34.png)
+
+![Closing slide reading ‘Thank you!’ with images comparing Options A, B, and C and logos for Seattle Public Schools and Building for Learning.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_35.png)
+
+#### Meeting Video
+
+[Watch a recording of the meeting](https://vimeo.com/1187134430)
+
+#### Your Feedback Matters
+
+If you attended the meeting, or if you have now viewed the presentation, please answer this question **by May 9**, by using our [**online form:**](https://forms.cloud.microsoft/r/Qx5hjFWGRD) **What additional information should we consider before making a decision about these three options?**
+
+We will review all feedback and then consult with Seattle Parks & Recreation to make the final selection.
 
 Community input has directly shaped this work. Over the past 3 years, we have heard from hundreds of people via email, the district’s Let’s Talk portal, community meetings, social media comments, petitions, news articles, and more.
 
@@ -112,6 +171,20 @@ Lincoln High School is the only high school in the district without an athletic 
 
 There is not room to add a track or athletic field on the Lincoln site, so SPS has been looking for alternative locations.
 
+### Funding
+
+This project is funded by the [Buildings, Technology, and Academics/Athletics Capital Levy](https://www.seattleschools.org/about/levy/2022-capital-levy/) (BTA V), which was approved by Seattle voters in 2022.
+
+These funds cannot help the district close the budget gap. Funding from a capital levy must be used for the specified purposed. Capital levy project funding cannot be transferred to the general fund, which is the account where operations and staffing are budgeted.
+
+### Project Team
+
+**Project Management Firm:** Shiels Obletz Johnsen (SOJ)
+
+**SOJ Project Manager:** Paige McGehee, [paigem@sojsea.com](mailto:paigem@sojsea.com)
+
+**Design and Engineering Firm:** McGranahan PBK
+
 ### Frequently Asked Questions on the Full-Size Athletic Field (prior to April 2026)
 
 ##### Why does Lincoln High School need an athletics practice field?
@@ -152,7 +225,7 @@ Other schools use their fields for practice and games, and many are booked to ca
 
 ##### Will this project displace existing community uses, such as the BMX jumps or skate park?
 
-Our updated test fit layout ensures that the field will no longer impact the BMX bicycle jump area. Thank you to the many community members who provided insight into the importance of maintaining these jumps. The skate park will also remain in place.
+Our updated test fit layout for Option A at Lower Woodland Field #2 ensures that the field will no longer impact the BMX bicycle jump area. Thank you to the many community members who provided insight into the importance of maintaining these jumps. The skate park will also remain in place.
 
 ##### Will construction of the athletic field close trails or limit park use?
 
@@ -219,8 +292,6 @@ Parking will be part of the siting and design study. SPS and SPR recognize the c
 ##### What is being done about traffic and safety in the Woodland Park Triangle (99, 50th St, Green Lake Way)?
 
 Traffic and safety are important considerations. SPS will coordinate with SPR and the City of Seattle to address existing congestion and event-related traffic in the Woodland Park Triangle. This includes evaluating parking management, transit access, and pedestrian/bike safety. Community input will help shape strategies to reduce negative impacts and improve access for all.
-
-[Have a question? Please use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
 
 ### Previous Conversations
 
@@ -289,19 +360,3 @@ The Lincoln High School Athletic Field and Track projects are two parts of a pro
 Locating the track and athletic field at Woodland Park will keep both facilities within the same park but not adjacent.
 
 While we are studying locations at Woodland Park to potentially site the athletic field, we do not anticipate that there will be space for both a track and field. We are planning upgrades to the track at Lower Woodland #7, but that field is not large enough to also include the new athletic field. In addition, upgrading the existing field would displace any athletic activities that currently take place on the field.
-
-[Have a question? Please use Let’s Talk.](https://www.k12insight.com/Lets-Talk/dialogue.aspx?k=PR2F68N4B9LT@WF7G2YLT@MDLT@DY6FXZXLT@LDLT@NDLT)
-
-### Funding
-
-This project is funded by the [Buildings, Technology, and Academics/Athletics Capital Levy](https://www.seattleschools.org/about/levy/2022-capital-levy/) (BTA V), which was approved by Seattle voters in 2022.
-
-These funds cannot help the district close the budget gap. Funding from a capital levy must be used for the specified purposed. Capital levy project funding cannot be transferred to the general fund, which is the account where operations and staffing are budgeted.
-
-### Project Team
-
-**Project Management Firm:** Shiels Obletz Johnsen (SOJ)
-
-**SOJ Project Manager:** Paige McGehee, [paigem@sojsea.com](mailto:paigem@sojsea.com)
-
-**Design and Engineering Firm:** McGranahan PBK
