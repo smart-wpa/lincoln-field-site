@@ -16,6 +16,8 @@ At this meeting we shared our evaluation of the final two location options for a
 
 You can download the presentation as a [PDF file](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada.pdf)or view it as slides below.
 
+Note: We have rechecked the requirements for lacrosse and have determined that the field size in option C is adequate for lacrosse It was previously shown as not adequate on slide 30 in the presentation from April 25.
+
 ![Title slide for Lincoln High School Field and Track community meeting on April 25, 2026, listing presenters from Seattle Public Schools and project partners. Seattle Public Schools and Building for Learning logos appear at the bottom.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_01-1.png)
 
 ![Agenda text with two images: Two students on an outdoor athletic field, one riding on the other’s back, with a soccer goal and school buildings in the background. and A group of students wearing sports uniforms walk together across a field at sunset.](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada_Page_02.png)
