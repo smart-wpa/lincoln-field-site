@@ -1,16 +1,65 @@
 Track and Athletic Field for Lincoln High School
 ------------------------------------------------
 
-### Latest News
+### Latest News: Superintendent Announces Recommendation on Lincoln HS Athletic Field
+
+Today, Superintendent Shuldiner met with Lincoln High School students to announce his recommendation for the location of the school’s new athletic field. He is asking Seattle Parks and Recreation to partner with SPS on designing and building a full-size, multi-sport athletic field at N. 50th Street and Aurora Avenue N.
+
+The request is based on the concept presented as Option B on April 25 with refinements to possible field orientation in response to community feedback.
+
+[![an aerial of a park with a circle in one corner. Circle is marked: recommended location Full size multi sport athletic field; also marked are existing field 2 and Track and Field events](https://www.seattleschools.org/wp-content/uploads/2026/06/field-location-50th.png?ver=1781131806)](https://www.seattleschools.org/wp-content/uploads/2026/06/field-location-50th.png?ver=1781131806)
+
+The message below was sent to Lincoln families and the community after the announcement.
+
+Thank you to everyone who has been part of the process to locate and build a new athletic field and track for Lincoln High School. Lincoln is an amazing school, and I’ve come to understand that a core part of what has been missing is a place for Lincoln athletes to call home. After many years of conversation about this, it was clear when I arrived as superintendent four months ago that it was time to act. 
+
+After reviewing community input, working with Lincoln’s administration and athletics staff, and talking with a number of community groups, I am asking Seattle Parks and Recreation to partner with us on designing and building a full-size, multi-sport athletic field at N. 50th Street and Aurora Avenue N, along with a planned renovation of the track at Lower Woodland Field #7.
+
+Today, I made sure Lincoln students heard that news first, because that’s who Seattle Public Schools is here to serve.
+
+This option is the right one for Lincoln students because it:
+
+*   **Expands access** by adding a new full-size athletic field available for both Lincoln and the broader community
+*   **Meets program needs** for soccer, football, Ultimate Frisbee, and lacrosse without displacing other users
+*   **Minimizes disruption** at Lower Woodland to focus on what’s needed for the track upgrade
+*   **Preserves capacity** by avoiding overcrowding at Lower Woodland
+
+We still have work to do in partnership with the Department of Parks and Recreation.
+
+One of the most important parts of the design process will be determining the best orientation for the field within the site with the goal of reducing impacts on tree canopy and surrounding natural areas. We heard that feedback clearly, and it will guide our work. The process will also include planning to support tree canopy and the forest floor, a traffic and parking study, ADA compliance, and an environmental impact statement that will include public comment. We’ll also be looking carefully at impacts to cross-country and cyclocross use of the area.
+
+Community input has shaped this from the start, and I’m grateful to Lincoln families, Friends of Lower Woodland, Tree Action, and so many others who have stayed engaged along the way.
+
+Today, SPS is submitting a letter to the Director of Seattle Parks and Recreation to move forward. We’ll present to the Parks Board this summer. We anticipate the field being ready for fall 2029 and the track sooner than that. I know 2029 feels far away. We will move as fast as we can and keep you posted along the way because our students deserve it.
+
+Thank you to every student, parent, staff member, and community member who helped us reach this moment. We look forward to ongoing collaboration.
+
+Sincerely,  Ben Shuldiner  
+Superintendent  
+Seattle Public Schools
+
+#### Concept Drawings Shared at Lincoln
+
+![aerial of a park with an athletic field with an oval track and some shapes imposed: Described as Lincoln HS Track at Lower Woodland Field #7 Concept Drawing with Field Event Practice Space](https://www.seattleschools.org/wp-content/uploads/2026/06/boards-for-lincoln-announcement-2-3-copy.jpg)
+
+Track and field events space concept drawing
+
+![aerial of a park with an athletic field imposed: described as ﻿﻿Lincoln HS Athletic Field at N 50th/Aurora Ave N Concept Drawing Possible north/south field orientation](https://www.seattleschools.org/wp-content/uploads/2026/06/boards-for-lincoln-announcement-2-1-copy.jpg)
+
+One option for field orientation
+
+![image with tree outlines and a rectangle at an angle: Described asLincoln HS Athletic Field at N 50th/Aurora Ave N Concept Drawing from Community group Possible angled field orientation](https://www.seattleschools.org/wp-content/uploads/2026/06/boards-for-lincoln-announcement-2-2-copy.jpg)
+
+Possible angled orientation
+
+### Community Meeting on Field Location Options
+
+Thank you for joining us on Saturday, April 25 at Hamilton International Middle School.
 
 **Tree reports**
 
 *   [Lower Woodland Field #2](https://www.seattleschools.org/wp-content/uploads/2026/04/WP-Field-2-Arborist-Tree-Table-and-Site-Map.pdf)
 *   [50th & Aurora gravel lot](https://www.seattleschools.org/wp-content/uploads/2026/04/WP-Gravel-Lot_-Arborist-Tree-Table-and-Site-Map.pdf)
-
-### Community Meeting on Field Location Options
-
-Thank you for joining us on Saturday, April 25 at Hamilton International Middle School.
 
 At this meeting we shared our evaluation of the final two location options for an athletic field at Woodland Park: an additional field at Lower Woodland Field #2 **(Option A**) or a new field at N. 50th Street and Aurora Avenue N. (**Option B or Option C**).
 
@@ -91,12 +140,6 @@ Note: We have rechecked the requirements for lacrosse and have determined that t
 #### Meeting Video
 
 [Watch a recording of the meeting](https://vimeo.com/1187134430)
-
-#### Your Feedback Matters
-
-If you attended the meeting, or if you have now viewed the presentation, please answer this question **by May 9**, by using our [**online form:**](https://forms.cloud.microsoft/r/Qx5hjFWGRD) **What additional information should we consider before making a decision about these three options?**
-
-We will review all feedback and then consult with Seattle Parks & Recreation to make the final selection.
 
 Community input has directly shaped this work. Over the past 3 years, we have heard from hundreds of people via email, the district’s Let’s Talk portal, community meetings, social media comments, petitions, news articles, and more.
 
