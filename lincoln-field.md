@@ -1,9 +1,19 @@
 Track and Athletic Field for Lincoln High School
 ------------------------------------------------
 
-### Latest News: Superintendent Announces Recommendation on Lincoln HS Athletic Field
+### Latest News
 
-Today, Superintendent Shuldiner met with Lincoln High School students to announce his recommendation for the location of the school’s new athletic field. He is asking Seattle Parks and Recreation to partner with SPS on designing and building a full-size, multi-sport athletic field at N. 50th Street and Aurora Avenue N.
+#### Board of Parks and Recreation Commissioners Meeting
+
+The Seattle Parks and Recreation held a meeting on Thursday, July 23, 2026, to hear the recommendation from Seattle Public Schools regarding the track and athletic field for Lincoln High School and take public testimony.
+
+[Meeting Presentation from Seattle Public Schools](https://www.seattleschools.org/wp-content/uploads/2026/07/LHS-Parks-Presentation-23July.pdf)
+
+Materials from Parks Board: [Agenda](https://www.seattle.gov/documents/Departments/ParksAndRecreation/Agendas/2026/2026%2007-23%20BPRC%20Public%20Hearing%20Agenda_ADA.pdf)[Meeting Memo](https://www.seattle.gov/documents/Departments/ParksAndRecreation/BriefingPapers/BPRC%20Memo%20-%20Lincoln%20HS%207-23-26.pdf)
+
+#### Superintendent Announces Recommendation on Lincoln HS Athletic Field
+
+June 10, 2026: Today, Superintendent Shuldiner met with Lincoln High School students to announce his recommendation for the location of the school’s new athletic field. He is asking Seattle Parks and Recreation to partner with SPS on designing and building a full-size, multi-sport athletic field at N. 50th Street and Aurora Avenue N.
 
 The request is based on the concept presented as Option B on April 25 with refinements to possible field orientation in response to community feedback.
 
@@ -63,7 +73,7 @@ Thank you for joining us on Saturday, April 25 at Hamilton International Middle 
 
 At this meeting we shared our evaluation of the final two location options for an athletic field at Woodland Park: an additional field at Lower Woodland Field #2 **(Option A**) or a new field at N. 50th Street and Aurora Avenue N. (**Option B or Option C**).
 
-You can download the presentation as a [PDF file](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada.pdf)or view it as slides below.
+[You can download the presentation as a PDF file](https://www.seattleschools.org/wp-content/uploads/2026/04/LHS-April25-Presentation-final-ada.pdf)or view it as slides below.
 
 Note: We have rechecked the requirements for lacrosse and have determined that the field size in option C is adequate for lacrosse It was previously shown as not adequate on slide 30 in the presentation from April 25.
 
@@ -340,7 +350,7 @@ Traffic and safety are important considerations. SPS will coordinate with SPR an
 
 ### Previous Conversations
 
-In 2024, SPS explored options for locating the athletic field at Wallingford Playfield. After engaging with the community, SPS and SPR decided to pause planning for any changes to Wallingford Playfield and instead focus on locating the field at Woodland Park. [The information on those discussion is available for review.](https://www.seattleschools.org/departments/capital-projects-and-planning/school-construction/projects/lincoln-field/lincoln-athletic-field-2024/)
+In 2024, SPS explored options for locating the athletic field at Wallingford Playfield. After engaging with the community, SPS and SPR decided to pause planning for any changes to Wallingford Playfield and instead focus on locating the field at Woodland Park. [The information on those discussion is available for review.](https://www.seattleschools.org/departments/capital-projects-and-planning/projects/lincoln-field/lincoln-athletic-field-2024/)
 
 Wallingford Playfield is not under consideration for the Lincoln High School full-size athletic field.
 
@@ -352,7 +362,7 @@ SPS and Seattle Parks & Recreation (SPR) have agreed to move forward with the tr
 
 This image shows how the new track and related facilities could be located. It is not a final design.
 
-[Track concept image](//www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2.pdf)
+[![aerial photo of a park with a oval running track and other shapes placed over the image](https://www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1-1024x768.jpg)](https://www.seattleschools.org/wp-content/uploads/2025/08/LW7-Field-Events-7-29-25-Option-3-v2-1.jpg)
 
 ### Frequently Asked Questions About the Track
 
