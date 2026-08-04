@@ -20,6 +20,48 @@ The Seattle Parks and Recreation held a meeting on Thursday, July 23, 2026, to h
 
 [Meeting Presentation from Seattle Public Schools](https://www.seattleschools.org/wp-content/uploads/2026/07/LHS-Parks-Presentation-23July.pdf)
 
+The slide show below includes the slides from the PDF of the meeting presentation.
+
+![slide 20 titled Next Steps showing that approval from Parks and Recreation is the next step followed by design for track renovations, and hiring a consultant to conduct the EIS for the field project](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_20-scaled.png)
+
+![slide 19 titled Summary with a recap of the requests](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_19-scaled.png)
+
+![Slide 18 titled Timeline: lower Woodland Field #7 Track](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_18-scaled.png)
+
+![slide 17 titled: Permitting: Track with a list of required permits](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_17-scaled.png)
+
+![slide 16 titled: Upgrade Track at Lower Woodland Field #7 with a list of items to be addressed in planning](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_16-scaled.png)
+
+![slide 15 titled: SPS request to proceed: Track asking to proceed with planning and design for renovation of the track at Lower Woodland Field #7](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_15-scaled.png)
+
+![Slide 14 titled Timeline: 50th and Aurora Multi-Use field](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_14-scaled.png)
+
+![slide 13 titled: Permitting: Athletic Field and a list of required permits](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_13-scaled.png)
+
+![slide 12 titled: Concepts: Possible Field orientation with three images](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_12-scaled.png)
+
+![Slide 11 titled: To be addressed during design phase](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_11-scaled.png)
+
+![Slide 10 titled: SPS Request to Proceed: Athletic Field Environmental Impact Statement](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_10-scaled.png)
+
+![Slide 9 titled: Feedback from April 25 with a summary of top take aways](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_09-scaled.png)
+
+![Slide 8 title: Field Options showing three location options shown at the April 25 community meeting](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_08-scaled.png)
+
+![Slide 7 titled Overview-Locations with an image showing two locations shared at the April 25 community meeting](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_07-scaled.png)
+
+![Slide6 titled Shift to Woodland Park sharing process for evaluating locations at Woodland Park](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_06-scaled.png)
+
+![Slide 5 titled A Look Back summarizing the history of seeking a location](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_05-scaled.png)
+
+![SLide 4 titled: Project drivers showing requirements and constraints](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_04-scaled.png)
+
+![SLide 3 titled Why are We here with key points and an image of Woodland Park with various locations called out](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_03-scaled.png)
+
+![slide 2 titled Why are we here? With the request that Parks allow SPS to proceed with EIS for the field and continue planning the track](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_02-scaled.png)
+
+![Slide 1 titled Lincoln High School Field & Track, Parks Board meeting: July 23, 2026](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_01-scaled.png)
+
 Materials from Parks Board: [Agenda](https://www.seattle.gov/documents/Departments/ParksAndRecreation/Agendas/2026/2026%2007-23%20BPRC%20Public%20Hearing%20Agenda_ADA.pdf)[Meeting Memo](https://www.seattle.gov/documents/Departments/ParksAndRecreation/BriefingPapers/BPRC%20Memo%20-%20Lincoln%20HS%207-23-26.pdf)
 
 #### Superintendent Announces Recommendation on Lincoln HS Athletic Field
