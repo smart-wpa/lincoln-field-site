@@ -3,7 +3,18 @@ Track and Athletic Field for Lincoln High School
 
 ### Latest News
 
-#### Board of Parks and Recreation Commissioners Meeting
+#### August 13: Seattle Board of Parks and Recreation Commissioners Meeting
+
+The Lincoln field project will be on the agenda for the [Board of Parks and Recreation](https://www.seattle.gov/board-of-parks-and-recreation-commissioners) Commissioners on **Thursday, Aug. 13 from 6 p.m. to 8 p.m.**
+
+The meeting will be at Miller Community Center. **330 19th Ave E, Seattle**
+
+The agenda and any materials will be posted prior to the meeting on the [Agenda and Minutes](https://www.seattle.gov/board-of-parks-and-recreation-commissioners/meeting-agendas-and-minutes#2022agendasandminutes) page.
+
+**To make public comments at Parks Board Meetings:**  
+Please sign up to make public comment ahead of time by emailing [PKS\_BPRC@seattle.gov](mailto:paula.hoff@seattle.gov) before 4:00 p.m. on the day of the meeting. 
+
+#### July 23: Board of Parks and Recreation Commissioners Meeting
 
 The Seattle Parks and Recreation held a meeting on Thursday, July 23, 2026, to hear the recommendation from Seattle Public Schools regarding the track and athletic field for Lincoln High School and take public testimony.
 
