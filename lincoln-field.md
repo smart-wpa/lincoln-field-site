@@ -62,7 +62,10 @@ The slide show below includes the slides from the PDF of the meeting presentatio
 
 ![slide 20 titled Next Steps showing that approval from Parks and Recreation is the next step followed by design for track renovations, and hiring a consultant to conduct the EIS for the field project](https://www.seattleschools.org/wp-content/uploads/2026/08/LHS-Parks-Presentation-23July-nn_Page_20-scaled.png)
 
-Materials from Parks Board: [Agenda](https://www.seattle.gov/documents/Departments/ParksAndRecreation/Agendas/2026/2026%2007-23%20BPRC%20Public%20Hearing%20Agenda_ADA.pdf)[Meeting Memo](https://www.seattle.gov/documents/Departments/ParksAndRecreation/BriefingPapers/BPRC%20Memo%20-%20Lincoln%20HS%207-23-26.pdf)
+Materials from Parks Board:
+
+*   [Agenda](https://www.seattle.gov/documents/Departments/ParksAndRecreation/Agendas/2026/2026%2007-23%20BPRC%20Public%20Hearing%20Agenda_ADA.pdf)
+*   [Meeting Memo](https://www.seattle.gov/documents/Departments/ParksAndRecreation/BriefingPapers/BPRC%20Memo%20-%20Lincoln%20HS%207-23-26.pdf)
 
 #### Superintendent Announces Recommendation on Lincoln HS Athletic Field
 
@@ -97,7 +100,9 @@ Today, SPS is submitting a letter to the Director of Seattle Parks and Recreatio
 
 Thank you to every student, parent, staff member, and community member who helped us reach this moment. We look forward to ongoing collaboration.
 
-Sincerely,  Ben Shuldiner  
+Sincerely,
+
+Ben Shuldiner  
 Superintendent  
 Seattle Public Schools
 
