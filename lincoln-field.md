@@ -5,14 +5,9 @@ Track and Athletic Field for Lincoln High School
 
 #### August 13: Seattle Board of Parks and Recreation Commissioners Meeting
 
-The Lincoln field project will be on the agenda for the [Board of Parks and Recreation](https://www.seattle.gov/board-of-parks-and-recreation-commissioners) Commissioners on **Thursday, Aug. 13 from 6 p.m. to 8 p.m.**
+At the meeting, the Commissioners recommended that the Interim Superintendent give SPS approval to begin the Environmental Impact Statement process for the a multi-purpose athletic field at Woodland Park. The Commissioners also recommended that the Interim Superintendent allow SPS to begin the process to renovate the track at Lower Woodland Field #7 and add a practice area for field events
 
-The meeting will be at Miller Community Center. **330 19th Ave E, Seattle**
-
-The agenda and any materials will be posted prior to the meeting on the [Agenda and Minutes](https://www.seattle.gov/board-of-parks-and-recreation-commissioners/meeting-agendas-and-minutes#2022agendasandminutes) page.
-
-**To make public comments at Parks Board Meetings:**  
-Please sign up to make public comment ahead of time by emailing [PKS\_BPRC@seattle.gov](mailto:paula.hoff@seattle.gov) before 4:00 p.m. on the day of the meeting. 
+You can see a recording of the meeting on the [city’s website.](https://www.seattlechannel.org/parksBoard/?videoid=x189522)
 
 #### July 23: Board of Parks and Recreation Commissioners Meeting
 
