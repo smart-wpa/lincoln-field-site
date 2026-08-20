@@ -287,9 +287,7 @@ These funds cannot help the district close the budget gap. Funding from a capita
 
 ### Project Team
 
-**Project Management Firm:** Shiels Obletz Johnsen (SOJ)
-
-**SOJ Project Manager:** Paige McGehee, [paigem@sojsea.com](mailto:paigem@sojsea.com)
+**Project Manager:** Conrad Plyler, [caplyler@seattleschools.org](mailto:caplyler@seattleschools.org)
 
 **Design and Engineering Firm:** McGranahan PBK
 
