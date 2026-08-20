@@ -59,8 +59,8 @@ The slide show below includes the slides from the PDF of the meeting presentatio
 
 Materials from Parks Board:
 
-*   [Agenda](https://www.seattle.gov/documents/Departments/ParksAndRecreation/Agendas/2026/2026%2007-23%20BPRC%20Public%20Hearing%20Agenda_ADA.pdf)
-*   [Meeting Memo](https://www.seattle.gov/documents/Departments/ParksAndRecreation/BriefingPapers/BPRC%20Memo%20-%20Lincoln%20HS%207-23-26.pdf)
+*   [Seattle Parks and Recreation July 23 Meeting Agenda](https://www.seattle.gov/documents/Departments/ParksAndRecreation/Agendas/2026/2026%2007-23%20BPRC%20Public%20Hearing%20Agenda_ADA.pdf)
+*   [Athletic Field Proposal Briefing Paper](https://www.seattle.gov/documents/Departments/ParksAndRecreation/BriefingPapers/BPRC%20Memo%20-%20Lincoln%20HS%207-23-26_ADA.pdf)
 
 #### Superintendent Announces Recommendation on Lincoln HS Athletic Field
 
