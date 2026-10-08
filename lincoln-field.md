@@ -3,13 +3,17 @@ Track and Athletic Field for Lincoln High School
 
 ### Latest News
 
-#### August 13: Seattle Board of Parks and Recreation Commissioners Meeting
+#### October 2026: Environmental Land Use Consultant Process
+
+SPS has requested proposals for an environmental land use consultant for the Lincoln High School Athletic Field and Track Projects. Proposals deadline: Oct. 20, 2026. For more information, contact [contractingservices@seattleschools.org](mailto:contractingservices@seattleschools.org).
+
+#### August 2026: Seattle Board of Parks and Recreation Commissioners Meeting
 
 At the meeting, the Commissioners recommended that the Interim Superintendent give SPS approval to begin the Environmental Impact Statement process for the a multi-purpose athletic field at Woodland Park. The Commissioners also recommended that the Interim Superintendent allow SPS to begin the process to renovate the track at Lower Woodland Field #7 and add a practice area for field events
 
 You can see a recording of the meeting on the [city’s website.](https://www.seattlechannel.org/parksBoard/?videoid=x189522)
 
-#### July 23: Board of Parks and Recreation Commissioners Meeting
+#### July 2026: Board of Parks and Recreation Commissioners Meeting
 
 The Seattle Parks and Recreation held a meeting on Thursday, July 23, 2026, to hear the recommendation from Seattle Public Schools regarding the track and athletic field for Lincoln High School and take public testimony.
 
@@ -62,9 +66,9 @@ Materials from Parks Board:
 *   [Seattle Parks and Recreation July 23 Meeting Agenda](https://www.seattle.gov/documents/Departments/ParksAndRecreation/Agendas/2026/2026%2007-23%20BPRC%20Public%20Hearing%20Agenda_ADA.pdf)
 *   [Athletic Field Proposal Briefing Paper](https://www.seattle.gov/documents/Departments/ParksAndRecreation/BriefingPapers/BPRC%20Memo%20-%20Lincoln%20HS%207-23-26_ADA.pdf)
 
-#### Superintendent Announces Recommendation on Lincoln HS Athletic Field
+#### June 2026: Superintendent Announces Recommendation on Lincoln HS Athletic Field
 
-June 10, 2026: Today, Superintendent Shuldiner met with Lincoln High School students to announce his recommendation for the location of the school’s new athletic field. He is asking Seattle Parks and Recreation to partner with SPS on designing and building a full-size, multi-sport athletic field at N. 50th Street and Aurora Avenue N.
+On June 10, 2026, Superintendent Shuldiner met with Lincoln High School students to announce his recommendation for the location of the school’s new athletic field. He is asking Seattle Parks and Recreation to partner with SPS on designing and building a full-size, multi-sport athletic field at N. 50th Street and Aurora Avenue N.
 
 The request is based on the concept presented as Option B on April 25 with refinements to possible field orientation in response to community feedback.
 
